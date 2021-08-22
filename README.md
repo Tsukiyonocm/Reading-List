@@ -1,5 +1,7 @@
-2021 Books\
-Books read starting December 1st 2020\
+# 2021 Books
+
+## Books read starting December 1st 2020
+
 ### Non-Fiction
 
 1. <b>The God Delusion</b> by Richard Dawkins (2-02-21) – Chapter 7 was by far the most interesting of chapters here. In it he talks about how it is assumed without the bible; people would not be moral. He goes on to point out why the bible should not be used as a moral compass in and of itself and should also not be taken literally as many do take it.\
