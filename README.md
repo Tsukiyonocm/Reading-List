@@ -1,6 +1,6 @@
-2021 Books
-Books read starting December 1st 2020
--- Non-Fiction –
+2021 Books/
+Books read starting December 1st 2020/
+-- Non-Fiction –-\
 
 1. The God Delusion by Richard Dawkins (2-02-21) – Chapter 7 was by far the most interesting of chapters here. In it he talks about how it is assumed without the bible; people would not be moral. He goes on to point out why the bible should not be used as a moral compass in and of itself and should also not be taken literally as many do take it.\
 There is also a section of this chapter called “The Moral Zeitgeist”. In it, he mentions a new 10 commandments to live by and goes on to talk about how we should not judge the past based on current moral topics. For instance, while Lincoln was ahead of his time, he also viewed the “black race” as inferior to the “white race” and believed the superior position should be to the “white race”. Overall, though, he believes that each progressive generation of people is moving in a more moral direction. Really a fascinating chapter of the book overall.
@@ -44,10 +44,10 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 13. Tiamat’s Wrath (The Expanse Book 8) by James S. A. Corey (8-17-21) – Great in every aspect! Cant wait for the final in the series. This one pitted the cast against the Laconian’s again and built up a bit more of what killed the protomolecule creators. Cant say much more without giving things away. Looking like a hell of a last book coming out later this year.
 
--- Currently Reading --
-1.	The Sixth Extinction by Elizabeth Kolbert
-2.	Halo Oblivion by Troy Denning
--- Current Book Completed Count as of 8-17-21 --
-Non-fiction - 7
-Fiction - 13
+-- Currently Reading --\
+1.	The Sixth Extinction by Elizabeth Kolbert\
+2.	Halo Oblivion by Troy Denning\
+-- Current Book Completed Count as of 8-17-21 --\
+Non-fiction - 7\
+Fiction - 13\
 
