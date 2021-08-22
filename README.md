@@ -1,6 +1,6 @@
 2021 Books\
 Books read starting December 1st 2020\
--- Non-Fiction –
+### Non-Fiction
 
 1. <b>The God Delusion</b> by Richard Dawkins (2-02-21) – Chapter 7 was by far the most interesting of chapters here. In it he talks about how it is assumed without the bible; people would not be moral. He goes on to point out why the bible should not be used as a moral compass in and of itself and should also not be taken literally as many do take it.\
 There is also a section of this chapter called “The Moral Zeitgeist”. In it, he mentions a new 10 commandments to live by and goes on to talk about how we should not judge the past based on current moral topics. For instance, while Lincoln was ahead of his time, he also viewed the “black race” as inferior to the “white race” and believed the superior position should be to the “white race”. Overall, though, he believes that each progressive generation of people is moving in a more moral direction. Really a fascinating chapter of the book overall.
@@ -17,7 +17,7 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 7. <b>Fortitude: American Resilience in the Era of Outrage</b> by Dan Crenshaw (8-06-21) – This was more interesting than I initially thought it was going to be. I expected something that was very one sided (he is a republican representative), and while it was a bit one sided, he did also point out the failings of his own party to an extent as well. Overall, he stated that both sides of the political spectrum are the problem and that people need to not being overly emotional and stop and think and be willing to listen. Considering other people’s perspectives and being willing to update yours based on a compelling argument presented with facts. This was more interesting than I was going to give it credit for, I largely just wanted to read it to get a different perspective then I normally get. I was surprised in the number of times that I found myself agreeing with his analysis and nodding along.
 
--- Fiction –-
+### Fiction
 
 1. <b>Leia: Princess of Alderaan</b> by Claudia Gray (12-24-20) – Overall the story was a bit interesting. Filling in some of the gaps between Leia joining into the rebellions cause, as well as filling in some character details from The Last Jedi. Claudia Gray has written some of my favorite stories and while this one was not perfect; it was interesting enough. I liked the characters and while we are talking about royal people, they feel real enough throughout the story. All around a good read, though I doubt I would re-read it in the future.
 
