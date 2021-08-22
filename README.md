@@ -52,6 +52,6 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 ### Current Book Completed Count as of 8-17-21
 
-Non-fiction - 7
+Non-fiction - 7\
 Fiction - 13
 
