@@ -45,10 +45,11 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 13. <b>Tiamat’s Wrath (The Expanse Book 8)</b> by James S. A. Corey (8-17-21) – Great in every aspect! Cant wait for the final in the series. This one pitted the cast against the Laconian’s again and built up a bit more of what killed the protomolecule creators. Cant say much more without giving things away. Looking like a hell of a last book coming out later this year.
 
--- Currently Reading --\
+### Currently Reading\
 1.	The Sixth Extinction by Elizabeth Kolbert\
 2.	Halo Oblivion by Troy Denning\
--- Current Book Completed Count as of 8-17-21 --\
+
+### Current Book Completed Count as of 8-17-21\
 Non-fiction - 7\
 Fiction - 13\
 
