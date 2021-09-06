@@ -19,6 +19,8 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 7. <b>Fortitude: American Resilience in the Era of Outrage</b> by Dan Crenshaw (8-06-21) – This was more interesting than I initially thought it was going to be. I expected something that was very one sided (he is a republican representative), and while it was a bit one sided, he did also point out the failings of his own party to an extent as well. Overall, he stated that both sides of the political spectrum are the problem and that people need to not being overly emotional and stop and think and be willing to listen. Considering other people’s perspectives and being willing to update yours based on a compelling argument presented with facts. This was more interesting than I was going to give it credit for, I largely just wanted to read it to get a different perspective then I normally get. I was surprised in the number of times that I found myself agreeing with his analysis and nodding along.
 
+8. <b>The Sixth Extinction</b> by Elizabeth Kolbert (9-04-21) - A fascinating book overall but wasnt what I was expecting (not a bad thing though!). The books chapters go over various things that have caused or are in the process of causing extinctions. Of the examples you expect are meteors such that ended the dinosaurs, climate change which also ended, or at least possibly ended, the permian time. Though it also goes into the chytrid fungus which is currently killing frogs across the world, as well as talking about how the large animals of the near past which went extinct, tend to follow also the time when humans first came into that area. The book painted an overall picture of why its believed to be the beginning of a new mass extinction event, and why its likely to get much worse before it ends if things dont start to change. Enlightening read for sure, though not exactly a happy read. 
+
 ### Fiction
 
 1. <b>Leia: Princess of Alderaan</b> by Claudia Gray (12-24-20) – Overall the story was a bit interesting. Filling in some of the gaps between Leia joining into the rebellions cause, as well as filling in some character details from The Last Jedi. Claudia Gray has written some of my favorite stories and while this one was not perfect; it was interesting enough. I liked the characters and while we are talking about royal people, they feel real enough throughout the story. All around a good read, though I doubt I would re-read it in the future.
@@ -49,11 +51,11 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 ### Currently Reading
 
-1.	The Sixth Extinction by Elizabeth Kolbert
+1.	Spillover by David Quammen
 2.	Halo Oblivion by Troy Denning
 
-### Current Book Completed Count as of 8-17-21
+### Current Book Completed Count as of 9-6-21
 
-Non-fiction - 7\
+Non-fiction - 8\
 Fiction - 13
 
