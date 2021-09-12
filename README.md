@@ -49,10 +49,12 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 13. <b>Tiamat’s Wrath (The Expanse Book 8)</b> by James S. A. Corey (8-17-21) – Great in every aspect! Cant wait for the final in the series. This one pitted the cast against the Laconian’s again and built up a bit more of what killed the protomolecule creators. Cant say much more without giving things away. Looking like a hell of a last book coming out later this year.
 
+14. <b>Halo Oblivion</b> by Troy Denning (9-12-21) - I have been a huge fan of halo for just shy of two decades now. In all this time though I have yet to read any of the novels set in that universe. This being the first one I am so far not sold on the series honestly. While the book wasn't that bad, it was sort of strange to read the inner thoughts of the hero from the games which is just the silent hero type more or less. All around, the story wasn't terrible, but it sort of built up to something and then that thing didn't happen. I will likely read another story in the series, but if the overall narrative doesn't hold my interest after that, I will likely move on and just stick to the games.  
+
 ### Currently Reading
 
 1.	Spillover by David Quammen
-2.	Halo Oblivion by Troy Denning
+2.	Fearful Symmetries by Various Authors
 
 ### Current Book Completed Count as of 9-6-21
 
