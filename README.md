@@ -56,10 +56,10 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 ### Currently Reading
 
 1.	Spillover by David Quammen
-2.	Fearful Symmetries by Various Authors
+2.	Star Wars: The High Republic - Light of the Jedi
 
-### Current Book Completed Count as of 9-6-21
+### Current Book Completed Count as of 10-5-21
 
 Non-fiction - 8\
-Fiction - 14
+Fiction - 15
 
