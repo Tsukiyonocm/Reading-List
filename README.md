@@ -53,13 +53,15 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 15. <b>Fearful Symmetries</b> by Various Authors (10-05-21) - I honestly was mostly let down with this compendium of stories. For a, what I had assumed anyway, was a largely horror based short story collection, the stories were sort of a letdown. There were a few stories a bit over halfway through that I thought were overall good, but the large majority just were uninteresting. I believe I had only bought this because it had stories from authors, I knew who wrote good books. Brian Evenson who wrote the Dead Space novels (which are fantastic) and John Langan who wrote an excellent short story in “A Living Dead” called “How the Day Runs Down”, which was also fantastic. In this one though, I don’t even remember if their stories were the memorable ones or not because everything was mediocre to me at best. All around, a pass.
 
+16. <b>Star Wars: The High Republic: Light of the Jedi</b> by Charles Soule (10-24-21) – So apparently this is really the first book in the new story arc. The book I had read previously was the second. Wasn’t too big of a deal though, the references were passing and didn’t ruin anything. The story really starts with a hyperspace anomaly causing a cargo ship to fall apart in hyper space. The pieces then proceed to scatter through various systems and cause damage killing billions of people. This leads the story to go into the rise of the new villains of this story line, the Nihil. Ultimately this was likely an introduction to many of the characters we will see over the course of the coming Novels, so there was a lot of introductions to be had, many Jedi and many leaders of the Nihil. All around, was a decent book, not great, but not terrible either. 
+
 ### Currently Reading
 
 1.	Spillover by David Quammen
-2.	Star Wars: The High Republic - Light of the Jedi
+2.	The First Days by Rhiannon Frater
 
-### Current Book Completed Count as of 10-5-21
+### Current Book Completed Count as of 10-26-21
 
 Non-fiction - 8\
-Fiction - 15
+Fiction - 16
 
