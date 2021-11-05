@@ -55,13 +55,16 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 16. <b>Star Wars: The High Republic: Light of the Jedi</b> by Charles Soule (10-24-21) – So apparently this is really the first book in the new story arc. The book I had read previously was the second. Wasn’t too big of a deal though, the references were passing and didn’t ruin anything. The story really starts with a hyperspace anomaly causing a cargo ship to fall apart in hyper space. The pieces then proceed to scatter through various systems and cause damage killing billions of people. This leads the story to go into the rise of the new villains of this story line, the Nihil. Ultimately this was likely an introduction to many of the characters we will see over the course of the coming Novels, so there was a lot of introductions to be had, many Jedi and many leaders of the Nihil. All around, was a decent book, not great, but not terrible either. 
 
+17. <b>The First Days</b> by Rhiannon Frater (11-4-21) – So generally when it comes to fiction I don’t like reaching out and reading something I am not familiar with from authors I don’t know. This book I randomly heard it was good from somewhere and figured I would add it to my list and maybe try it. Glad I did as the book was a decent zombie book. The basic premise is as you would suspect, main characters, Jennie and Katie, meet up during the fall of civilization when the zombies start rising and have to survive. Pretty straight forward but the interactions were believable, the setting was believable as well. All around I ended up adding the next book in the series to my list and hope it goes cheaper soon so I can continue the story.
+
+
 ### Currently Reading
 
 1.	Spillover by David Quammen
-2.	The First Days by Rhiannon Frater
+2.	Brave New World by Aldous Huxley
 
 ### Current Book Completed Count as of 10-26-21
 
 Non-fiction - 8\
-Fiction - 16
+Fiction - 17
 
