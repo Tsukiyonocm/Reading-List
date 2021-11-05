@@ -63,7 +63,7 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 1.	Spillover by David Quammen
 2.	Brave New World by Aldous Huxley
 
-### Current Book Completed Count as of 10-26-21
+### Current Book Completed Count as of 11-05-21
 
 Non-fiction - 8\
 Fiction - 17
