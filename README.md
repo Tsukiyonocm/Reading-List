@@ -21,6 +21,9 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 8. <b>The Sixth Extinction</b> by Elizabeth Kolbert (9-04-21) - A fascinating book overall but wasn’t what I was expecting (not a bad thing though!). The books chapters go over various things that have caused or are in the process of causing extinctions. Of the examples you expect are meteors such that ended the dinosaurs, climate change which also ended, or at least possible ended, the Permian time. Though it also goes into the chytrid fungus, which is currently killing frogs across the world, as well as talking about how the large animals of the near past which went extinct, tend to also follow the time when humans first came into that area. The book painted an overall picture of why it’s believed we are heading into the beginning of a new mass extinction event, and why its likely to get much worse before it ends of things don’t start to change. Enlightening read for sure, though not exactly a happy read.
 
+9. <b>Spillover</b> by David Quammen (11-6-21) – This was quite interesting as it went through how virus tend to come over to humans via an animal. The vector that you are looking at is when a virus jumps from one species of animal to humans. This can be done either by contaminated blood, airborne via breathing droplets or just being brought airborne on the ground via wind, can be done from an animal eating a fruit that is subsequently eaten by a human later. The book goes over various viruses that have made the jump to humans. Included is Marburg and Ebola, Influenza, SARS, Hendra, and AIDS virus among others. Talks about how most of these are carried by a reservoir animal that can infect others but is generally not affected itself. The book while interesting spells out that the encroaching on animal biomes, the increasing population densities is just exacerbating an issue where a virus gets a chance to spread and evolve by creating new variants of itself that might be worse or more likely to infect and spread in the human species. While the book took me quite a long time to read, I found it quite fascinating, especially given we are likely in the middle of a pandemic that was brought about by this very thought. 
+
+
 ### Fiction
 
 1. <b>Leia: Princess of Alderaan</b> by Claudia Gray (12-24-20) – Overall the story was a bit interesting. Filling in some of the gaps between Leia joining into the rebellions cause, as well as filling in some character details from The Last Jedi. Claudia Gray has written some of my favorite stories and while this one was not perfect; it was interesting enough. I liked the characters and while we are talking about royal people, they feel real enough throughout the story. All around a good read, though I doubt I would re-read it in the future.
@@ -60,11 +63,11 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 ### Currently Reading
 
-1.	Spillover by David Quammen
+1.	Doctors from Hell by Vivien Spitz
 2.	Brave New World by Aldous Huxley
 
-### Current Book Completed Count as of 11-05-21
+### Current Book Completed Count as of 11-06-21
 
-Non-fiction - 8\
+Non-fiction - 9\
 Fiction - 17
 
