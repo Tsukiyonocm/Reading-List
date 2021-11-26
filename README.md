@@ -60,14 +60,16 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 17. <b>The First Days</b> by Rhiannon Frater (11-4-21) – So generally when it comes to fiction I don’t like reaching out and reading something I am not familiar with from authors I don’t know. This book I randomly heard it was good from somewhere and figured I would add it to my list and maybe try it. Glad I did as the book was a decent zombie book. The basic premise is as you would suspect, main characters, Jennie and Katie, meet up during the fall of civilization when the zombies start rising and have to survive. Pretty straight forward but the interactions were believable, the setting was believable as well. All around I ended up adding the next book in the series to my list and hope it goes cheaper soon so I can continue the story.
 
+18. <b>Brave New World</b> by Aldous Huxley (11-25-21) – So the premise of this is a utopian society that is largely created by forcing society into certain roles by use of hypnotic suggestion from birth onwards. They are created essentially in a factory from initial fertilization up till birth, there is no procreation in society. Various castes are created of various intelligence levels, of which your likes and dislikes are decided from birth as well based on this caste. For instance, a certain cast will have a dislike of being out in nature and will feel sick to the stomach by the thought of having to go camping. In this sort of society, free thinking is forbidden and even the new learnings of science are blocked from being taught if it could lead to free thinking. In this society, someone born outside of it is interjected into it through the story and you see their eventual reaction to this society. All around an interesting story, and while there are certain aspects of this utopian society I would personally jump into, just like with Blackmirror tv show, there are downsides to this which is shown at the end. 
+
 
 ### Currently Reading
 
 1.	Doctors from Hell by Vivien Spitz
-2.	Brave New World by Aldous Huxley
+2.	The Living Dead by George Romero and Daniel Kraus
 
-### Current Book Completed Count as of 11-06-21
+### Current Book Completed Count as of 11-25-21
 
 Non-fiction - 9\
-Fiction - 17
+Fiction - 18
 
