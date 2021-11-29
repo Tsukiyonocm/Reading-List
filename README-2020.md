@@ -66,3 +66,7 @@
 ### Just Cant Get Into Right Now
 
 1. <b>How to Create a Mind</b> by Ray Kurzweil - I bought this because I was curious to hear his thoughts on the singularity and various other future predictions. The book might get into it, but its early chapters focus on the workings of the brain which is quite dense. Informative, but very dense and hard to read. I just cant get interested into it enough to keep going right now. I moved on to another story and will likely come back to this in the future again.
+
+### Year Totals
+Non-fiction - 12 \
+Fiction - 16
