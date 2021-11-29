@@ -27,3 +27,42 @@
 11. <b>When The Earth Had Two Moons</b> by Erik Asphaug (10-15-20) – Ultimately this book covers a lot of information about the creation of the solar system, how the plants and various moons moved as well as the reason to going to various other points in the system to explore. It brings it back into focus though talking about how various methods of the moon’s formation and the Theia theory. All around, was a good book though a bit dense in information.
 
 12. <b>The Revenge of Gaia</b> by James Lovelock (11-11-20) – The basic premise of Gaia theory is that the earth is a self-regulating body in the same sense as any living entity. It tries to maintain a specific temperature via the use of natural means. Ultimately the book goes on to talk about climate change and his personal views on what is needed to help fix the damage we have caused to this system. Its in interesting read, though it does sometimes meander a bit before getting to the point.
+
+
+### Fiction
+
+1. <b>Star Wars: Rebel Rising</b> by Beth Revis (12-1-19) - Interesting enough read as it stands. This is sort of the prequel to Star Wars Rogue One the movie. Starts essentially when Jyn’s parents are found, she is taken in by Saw, and eventually leads to the opening scenes of the movie.
+
+2. <b>Cibola Burn (The Expanse Book 4)</b> by James S. A. Corey (1-16-20) - While not as interesting as the previous three books. It was still good to get back into the series and read it along side the release of the 4th season of the show which covered the same subject matter. All around looking forward to the 5th book.
+
+3. <b>Star Wars: Reven</b> By Drew Karpyshyn (2-7-20) - Was a nice read even if the story line is no longer valid to the continuity. Enjoyed the character since playing Knights of the Old Republic back in the day. I still wish his character would have more stories about him, as this one felt a bit rushed to get through the story arc though all around it was still a good read. 
+
+4. <b>The Last Astronaut</b> by David Wellington (3-17-20) - Story is essentially first contact with an alien species with a slight twist. Overall was an interesting read, its sort of written as if its already happened even though it takes place about 30 years in the future. It even has some monologues about the characters perspective looking back on the events that happened. Enjoyed the read, though will likely not read it again anyway. 
+
+5. <b>Boundless</b> by R. A. Salvatore (4-10-20) - Book 2 of the new series (book 1 was Timeless), picks up where book 1 left off. If you are a fan of Drizzt and his previous adventures, I was not disappointed with this story either.
+
+6. <b>Nemesis Games (The Expanse Book 5)</b> by James S. A. Corey (5-3-20) - I cant say much on this as to not ruin the plot. So far though I would say this is probably one of the best stories out of the books, and all the books have been quite good so far. The character driven stories here just sealed the deal. I honestly cant wait to watch Season 5 of the show once it becomes available.
+
+7. <b>Star Wars: Heir to the Jedi</b> by Kevin Hearne (5-20-20) - I bought this over 2 years ago now. I had a bit of time getting into the first person perspective its written from. This tracks Luke Skywalker seemingly between episodes 4 and 5. After a bit, the story wasn't that bad. Didn't really add much to the overall story outside of filling in some thoughts from Luke during this time as he is learning the force. Overall, was interesting but probably wont ever read it again.
+
+8. <b>Lord of the Flies</b> by William Golding (5-27-20) - I dont remember how this even got added to my list honestly. I think it was recommended from someone else most influential must read lists. (Elon Musk perhaps?). I seen the movie years ago so I had an idea of what I was getting into. Savagery and loss of all sense and falling back to violence. About sums it up. An interesting read, though, the same issue I run into many classic books is its hard to understand whats going on sometimes because of the prose. 
+
+9. <b>Do Robots Dream of Electric Sheep</b> by Philip K. Dick (6-9-20) - I have never actually watched Blade Runner which is based off this book. All around though this was a very interesting book. Takes place around the year now after some sort of apocalypse that has sent the large majority of the human race to Mars now. Those left on Earth appear to largely be those who are not intelligent enough to be allowed to leave, or those who choose to stay. In this world the androids sometimes escape and are tracked by bounty hunters. The world has few animals and everyone strives to have some sort of animal. The most amazing things for most people is to find a living animal in the wild. The world building is just amazing and made the book quite fun to read.
+
+10. <b>Star Wars: The Legends of Luke Skywalker</b> by Ken Liu (6-26-20) - Another of whats become norm of a book of stories. This is basically a bunch of events that take place sometime in the new trilogy about how Luke went on a search into the history of the Jedi and its various facets. Overall, was an average story but was interesting enough in its own right. 
+
+11. <b>Babylons Ashes (The Expanse Book 6)</b> by James S. A. Corey (8-3-20) - Another stellar installment in the Expanse series of books. Book 4 while great was a bit slow I thought, but books 5 and 6 have just been non stop action. Plus with the show released earlier this year, the casting is so good I have had a hard time remembering if I have watched it or read it at this point. Just a phenomenal book all around and looking forward to reading book 7 at some point in the future.
+
+12. <b>Star Wars: The Force Collector</b> by Kevin Schinick (8-19-20) - Was an average story really. Was a coming of age tale where the hero finds himself and some friends by the end. Like many of the Star Wars books recently, it seems to be average at best. Enjoyable, but not memorable to me. 
+
+13. <b>Hull Zero Three</b> by Greg Bear (9-10-20) - Seen this recommended by another author I follow, I believe it was Scott Sigler, but I cant remember for sure. The book was a slow start, as it starts from the perspective of a guy who is just woken up from a type of cryosleep (think the movie Passengers). He gets woken up into a ship that is clearly broken in some way and largely needs to figure out whats going on to stay alive while also dealing with not having memories from before. Wasnt a bad read overall, sort of slow but it was interesting enough. It ended not the way I expected and was sort of a let down, but overall was interesting book. 
+
+14. <b>Star Wars: Thrawn Treason</b> by Timothy Zahn (9-21-20) - To be short, a great read. These books by Zahn have been among the best of the newly written Star Wars books released (Lost Stars is another great read here). All around, if you like the Thrawn books, read this, though read the previous two first. Even though they are not necessarily related, I'm a stickler for reading things in order! 
+
+15. <b>The Haunting of Hill House</b> by Shirley Jackson (10-9-2020) – Actually an exceptionally good story. I went in knowing this was different from the show and did not have high hopes for it. I find the older the stories I often find the prose hard to get into. Had this issue with “Turning of the Screw” and “Orestes”. While the stories seemed interesting, the writing could not hold me. This was great though, kept a good bit of tension for a book also. All around a good read.
+
+16. <b>Persepolis Rising</b> by James S. A. Corey (11-26-20) – Another great book in the series. All around cant comment on much that happens, but a great story.  Love the characters and learning about each one new in each story.
+
+### Just Cant Get Into Right Now
+
+1. <b>How to Create a Mind</b> by Ray Kurzweil - I bought this because I was curious to hear his thoughts on the singularity and various other future predictions. The book might get into it, but its early chapters focus on the workings of the brain which is quite dense. Informative, but very dense and hard to read. I just cant get interested into it enough to keep going right now. I moved on to another story and will likely come back to this in the future again.
