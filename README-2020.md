@@ -4,7 +4,7 @@
 
 ## Non-Fiction
 
-1. <b>Punished by Rewards</b> by Alfie Kohn (11 - 29- 19) - Really interesting read about how rewards have a tendency to undermine peoples interest in following through with what the rewards are supposed to increase interest in. This is in regards to parenting, work place incentives, and largely any reward based option. Very fascinating overall and highly recommend it.
+1. <b>Punished by Rewards</b> by Alfie Kohn (11-29-19) - Really interesting read about how rewards have a tendency to undermine peoples interest in following through with what the rewards are supposed to increase interest in. This is in regards to parenting, work place incentives, and largely any reward based option. Very fascinating overall and highly recommend it.
 
 2. <b>Archaeology From Space</b> by Sarah Parcak (12-21-19) - Goes into the use of satellites and their usages in helping archaeologist find new sites for further study. The author talks also about the state of looting and how using crowd sourcing platforms they are able to possibly locate new areas of study while trying to get to these locations before the looters. Overall was pretty interesting as the author had plenty of stories from her own adventures, with plenty of Indian Jones references, as well as some times where the information garnered did not prove to be worth while. 
 
