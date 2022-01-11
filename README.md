@@ -20,7 +20,7 @@
 1.	Typhoid Mary by Anthony Bourdain
 2.	The Restaurant at the End of the Galaxy by Douglas Adams
 
-### Current Book Completed Count as of 1-1-2022
+### Current Book Completed Count as of 1-10-2022
 
 Non-fiction - 1\
 Fiction - 2
