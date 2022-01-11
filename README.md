@@ -5,7 +5,7 @@
 [Archive 2021](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2021.md)
 
 ### Non-Fiction
-
+1. <b>Quiet</b> by Susan Cain (1-10-22) - As an introvert myself, I wanted to read this largely to just read more about myself and why I am the way I am. Also to know that its normal and OK to be what I am and its not something that should be considered. What I found interesting is that there is different levels that introverts and extroverts can take. While its not a surprise to me that an introvert can come across as an extrovert given the right stimulus, I didn't realize that this can have an effect on someone when done for long term and to extremes. The other thing of interest here is realizing that even though society, at least western society, tends to look down on introverts, like most things, there is a need for balance in the world. Introverts can be every bit as good sellers, artist, musicians as any extrovert can be. Whats largely different between the two is how they can be drained or gain energy between various social situations and quiet time.
 
 
 ### Fiction
@@ -17,11 +17,11 @@
 
 ### Currently Reading
 
-1.	Quiet by Susan Cain
+1.	Typhoid Mary by Anthony Bourdain
 2.	The Restaurant at the End of the Galaxy by Douglas Adams
 
 ### Current Book Completed Count as of 1-1-2022
 
-Non-fiction - 0\
+Non-fiction - 1\
 Fiction - 2
 
