@@ -14,14 +14,16 @@
 
 2. <b>Foundation</b> by Issac Asimov (12-31-21) - This was an interesting read. I had heard about the series for a longtime, and just now decided to finally delve into the first story of it. Basic premise of it is that a top tier mathmatician (psychohistorian in the book) realizes through his equations that society galaxy wide is heading towards a decline which will last several tens of thousands of year. In order to make the fall last longer, he starts a chain of events that is based on the same mathmatics setup to make the decline last only roughly a thousand years. It was interesting reading the deductive reasoning the characters used to make their choices honestly. Through various Seldon Crises, the main protaganist of the several ages talked about here have to deduce the course of events correctly in order to keep society on its path to what should be a golden age. The most interesting take for me from the story though was its take on religion, using it to control a populace in order to forestall any sort of rebellion against them, at least untill its worth was no longer needed and it was discarded.
 
+3. <b>The Restaurant at the End of the Galaxy</b> by Douglas Adams (1-16-22) - 6 * 9 = 42
+
 
 ### Currently Reading
 
 1.	Typhoid Mary by Anthony Bourdain
-2.	The Restaurant at the End of the Galaxy by Douglas Adams
+2.	Star Wars: Master & Apprentice by Claudia Gray
 
-### Current Book Completed Count as of 1-10-2022
+### Current Book Completed Count as of 1-16-2022
 
 Non-fiction - 1\
-Fiction - 2
+Fiction - 3
 
