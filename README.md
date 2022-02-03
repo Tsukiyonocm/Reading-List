@@ -18,14 +18,16 @@
 
 3. <b>The Restaurant at the End of the Galaxy</b> by Douglas Adams (1-16-22) - 6 * 9 = 42
 
+4. <b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22) - So this was a tale about Qui-gon Jinn and Obi-Wan Kenobi. It filled in some of the history on their relationship and overall the character of Qui-gon who sadly was not to fleshed out back in the movies. The tale is ultimately about a coming of age coronation on a planet, some sort of conspiracy, and the events that follow there on. It also filled in a bit more about Count Dooku as well, though not much mind you, it showed a bit more of his decent and ultimate fall from the Jedi. Overall, was a pretty good read all things considered. 
+
 
 ### Currently Reading
 
 1.	The War on Science by Shawn Otto
-2.	Star Wars: Master & Apprentice by Claudia Gray
+2.	Harvest Home by Thomas Tryon
 
-### Current Book Completed Count as of 1-17-2022
+### Current Book Completed Count as of 2-22-2022
 
 Non-fiction - 2\
-Fiction - 3
+Fiction - 4
 
