@@ -9,6 +9,8 @@
 
 2. <b>Typhoid Mary</b> by Anthony Bourdain (1-17-22) - I had been curious about the story of Mary Mallon for awhile. I knew the references to her, someone who is essentially a walking plague, but I really didn't know anything about the person in actuality. After reading this I still don't know a lot about her, but because of this fantastic story, I have a better idea of how she might have felt. He delves into her story from before she was first captured, relays what little of her story is known prior, then delves into the events of what happened. Doing this from a chefs perspective is a good take here because he is able to, likely anyway, put himself in her perspective as a head chef prior to being incarcerated on the island. A proud woman of irish upbringing, with someone barging into her life and flat out saying she is the cause of various typhoid outbreaks which had sickened and killed families that she was employed at. Ultimately relating how in the end, she lost most of her hope and lived till she died after some 25 years or so locked away on the island. All around, its a sad tale and a very humanizing story. Highly recommend the story to everyone.
 
+<b>The War On Science</b> by Shawn Otto - This is a fantastic read! It takes forever though to get through as there is a lot of information to digest here. Firstly, there is no one political spectrum that is at fault, both sides of pushed at various times anti science endeavors. Secondly, it will take a lot of work in order to fix this, but its essential that it gets done. Probably the first step is to stop being so overreactive to people and actually trying to create a dialogue instead of name calling. Talking to people and trying to figure out where their apprehension is towards something can help far more then calling people idiots. Secondly, the realization that science is NOT anti religion. Science is about proving things, religion or god cannot be proved one way or the other, so science as a whole does not really care about it.
+
 
 ### Fiction
 
@@ -18,16 +20,18 @@
 
 3. <b>The Restaurant at the End of the Galaxy</b> by Douglas Adams (1-16-22) - 6 * 9 = 42
 
-4. <b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22) - So this was a tale about Qui-gon Jinn and Obi-Wan Kenobi. It filled in some of the history on their relationship and overall the character of Qui-gon who sadly was not to fleshed out back in the movies. The tale is ultimately about a coming of age coronation on a planet, some sort of conspiracy, and the events that follow there on. It also filled in a bit more about Count Dooku as well, though not much mind you, it showed a bit more of his decent and ultimate fall from the Jedi. Overall, was a pretty good read all things considered. 
+4. <b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22) - So this was a tale about Qui-gon Jinn and Obi-Wan Kenobi. It filled in some of the history on their relationship and overall the character of Qui-gon who sadly was not to fleshed out back in the movies. The tale is ultimately about a coming of age coronation on a planet, some sort of conspiracy, and the events that follow there on. It also filled in a bit more about Count Dooku as well, though not much mind you, it showed a bit more of his decent and ultimate fall from the Jedi. Overall, was a pretty good read all things considered.
+
+5. <b>Harvest Home</b> by Thomas Tryon (3-15-22) - Overall I was not impressed with this book. I believe I had read it was similar to Children of the Corn back before I decided to buy it. I thought the book overall was well written, I just found the overall story somewhat boring. The last couple of chapters were interesting, but not nearly enough to bring this to even a so-so read. The basics is a city family moves to this small middle of nowhere town. Then we slowly get involved with the methos and mythology of the town and their belief system. It just takes way to long to get going. In likely hood, I will not be reading anything else from this particular author is this is what I have to look forward to.
 
 
 ### Currently Reading
 
 1.	The War on Science by Shawn Otto
-2.	Harvest Home by Thomas Tryon
+2.	Resident Evil: Underworld by S. D. Perry
 
-### Current Book Completed Count as of 2-22-2022
+### Current Book Completed Count as of 3-17-2022
 
 Non-fiction - 2\
-Fiction - 4
+Fiction - 5
 
