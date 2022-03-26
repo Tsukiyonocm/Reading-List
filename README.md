@@ -24,14 +24,16 @@
 
 5. <b>Harvest Home</b> by Thomas Tryon (3-15-22) - Overall I was not impressed with this book. I believe I had read it was similar to Children of the Corn back before I decided to buy it. I thought the book overall was well written, I just found the overall story somewhat boring. The last couple of chapters were interesting, but not nearly enough to bring this to even a so-so read. The basics is a city family moves to this small middle of nowhere town. Then we slowly get involved with the methos and mythology of the town and their belief system. It just takes way to long to get going. In likely hood, I will not be reading anything else from this particular author is this is what I have to look forward to.
 
+6. <b>Resident Evil: Underworld</b> by S. D. Perry (3-25-22) - This has the team going into a secret bunker facility in Utah in search of a little black book which has the contact information and contacts for the higher ups inside Umbrella. We get to see some more monsters and get a little information on Trent as well. All around, I got what I expected from this story. Was not the best story of all time, but was interesting enough to fill in more lore in the timeline. 
+
 
 ### Currently Reading
 
 1.	The War on Science by Shawn Otto
-2.	Resident Evil: Underworld by S. D. Perry
+2.	Come Closer by Sara Gran
 
 ### Current Book Completed Count as of 3-17-2022
 
 Non-fiction - 2\
-Fiction - 5
+Fiction - 6
 
