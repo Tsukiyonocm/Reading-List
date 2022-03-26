@@ -30,9 +30,9 @@
 ### Currently Reading
 
 1.	The War on Science by Shawn Otto
-2.	Come Closer by Sara Gran
+2.	The Mandalorian by Joe Schreiber
 
-### Current Book Completed Count as of 3-17-2022
+### Current Book Completed Count as of 3-26-2022
 
 Non-fiction - 2\
 Fiction - 6
