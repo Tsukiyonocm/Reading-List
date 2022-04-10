@@ -9,7 +9,7 @@
 
 2. <b>Typhoid Mary</b> by Anthony Bourdain (1-17-22) - I had been curious about the story of Mary Mallon for awhile. I knew the references to her, someone who is essentially a walking plague, but I really didn't know anything about the person in actuality. After reading this I still don't know a lot about her, but because of this fantastic story, I have a better idea of how she might have felt. He delves into her story from before she was first captured, relays what little of her story is known prior, then delves into the events of what happened. Doing this from a chefs perspective is a good take here because he is able to, likely anyway, put himself in her perspective as a head chef prior to being incarcerated on the island. A proud woman of irish upbringing, with someone barging into her life and flat out saying she is the cause of various typhoid outbreaks which had sickened and killed families that she was employed at. Ultimately relating how in the end, she lost most of her hope and lived till she died after some 25 years or so locked away on the island. All around, its a sad tale and a very humanizing story. Highly recommend the story to everyone.
 
-<b>The War On Science</b> by Shawn Otto - This is a fantastic read! It takes forever though to get through as there is a lot of information to digest here. Firstly, there is no one political spectrum that is at fault, both sides of pushed at various times anti science endeavors. Secondly, it will take a lot of work in order to fix this, but its essential that it gets done. Probably the first step is to stop being so overreactive to people and actually trying to create a dialogue instead of name calling. Talking to people and trying to figure out where their apprehension is towards something can help far more then calling people idiots. Secondly, the realization that science is NOT anti religion. Science is about proving things, religion or god cannot be proved one way or the other, so science as a whole does not really care about it.
+3. <b>The War On Science</b> by Shawn Otto (4-1-22) - This is a fantastic read! It takes forever though to get through as there is a lot of information to digest here. Firstly, there is no one political spectrum that is at fault, both sides of pushed at various times anti science endeavors. Secondly, it will take a lot of work in order to fix this, but its essential that it gets done. Probably the first step is to stop being so overreactive to people and actually trying to create a dialogue instead of name calling. Talking to people and trying to figure out where their apprehension is towards something can help far more then calling people idiots. Secondly, the realization that science is NOT anti religion. Science is about proving things, religion or god cannot be proved one way or the other, so science as a whole does not really care about it.
 
 
 ### Fiction
@@ -26,14 +26,16 @@
 
 6. <b>Resident Evil: Underworld</b> by S. D. Perry (3-25-22) - This has the team going into a secret bunker facility in Utah in search of a little black book which has the contact information and contacts for the higher ups inside Umbrella. We get to see some more monsters and get a little information on Trent as well. All around, I got what I expected from this story. Was not the best story of all time, but was interesting enough to fill in more lore in the timeline. 
 
+7. <b>The Mandalorian</b> by Joe Schreiber (4-9-22) - Generally when I read a novelization of a movie or tv show, I am usually looking for those things that are not included in the movie. For instance, internal dialogue, extended scenes or just new scenes all together. This did not have any of that. Its basically a scene for scene version of the show and not really any new ground. Not to say it was bad, but just dont have me interested in reading the book for season 2.
+
 
 ### Currently Reading
 
-1.	The War on Science by Shawn Otto
-2.	The Mandalorian by Joe Schreiber
+1.	Catching Stardust by Natalie Starkey
+2.	Come Closer by Sara Grant
 
-### Current Book Completed Count as of 3-26-2022
+### Current Book Completed Count as of 4-09-2022
 
-Non-fiction - 2\
-Fiction - 6
+Non-fiction - 3\
+Fiction - 7
 
