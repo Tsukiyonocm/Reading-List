@@ -28,14 +28,16 @@
 
 7. <b>The Mandalorian</b> by Joe Schreiber (4-9-22) - Generally when I read a novelization of a movie or tv show, I am usually looking for those things that are not included in the movie. For instance, internal dialogue, extended scenes or just new scenes all together. This did not have any of that. Its basically a scene for scene version of the show and not really any new ground. Not to say it was bad, but just dont have me interested in reading the book for season 2.
 
+8. <b>Come Closer</b> by Sara Grant (4-12-22) - Well this was a pretty quick and interesting read actually. Plays out a bit like Paranormal Experience, but in the first person and without the cameras. While not the most terrifying of reads as I had read, it was quite good watching someones downfall into being possessed by a demon. Probably wont read this again, but I do not regret stumbling across this randomly on facebook.
+
 
 ### Currently Reading
 
 1.	Catching Stardust by Natalie Starkey
-2.	Come Closer by Sara Grant
+2.	Elder Race by Adrian Tchaikovsky
 
-### Current Book Completed Count as of 4-09-2022
+### Current Book Completed Count as of 4-12-2022
 
 Non-fiction - 3\
-Fiction - 7
+Fiction - 8
 
