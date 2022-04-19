@@ -30,14 +30,16 @@
 
 8. <b>Come Closer</b> by Sara Grant (4-12-22) - Well this was a pretty quick and interesting read actually. Plays out a bit like Paranormal Experience, but in the first person and without the cameras. While not the most terrifying of reads as I had read, it was quite good watching someones downfall into being possessed by a demon. Probably wont read this again, but I do not regret stumbling across this randomly on facebook.
 
+9. <b>Elder Race</b> by Adrian Tchaikovsky (4-17-22) - This was another book I didn't have much expectation for honestly. I read this only because I liked another of the authors books and got a good deal on a preorder of it. The basic premise behind it is that any sufficiently advanced technology is indistinguishable from magic. In the story we have the Sorcerer as he becomes known drawn into a quest in order to stop a demon. Its here we find out the sorcerer is actually just someone who was supposed to be watching this lower species of humanoids and just writing reports on them and learning about them, but not interfering. All around this was a quick and interesting read, and honestly leaves me still wanting to read more of the authors other works.
+
 
 ### Currently Reading
 
 1.	Catching Stardust by Natalie Starkey
-2.	Elder Race by Adrian Tchaikovsky
+2.	Dark Matter by Blake Crouch
 
-### Current Book Completed Count as of 4-12-2022
+### Current Book Completed Count as of 4-18-2022
 
 Non-fiction - 3\
-Fiction - 8
+Fiction - 9
 
