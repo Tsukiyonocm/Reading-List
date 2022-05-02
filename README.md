@@ -11,6 +11,8 @@
 
 3. <b>The War On Science</b> by Shawn Otto (4-1-22) - This is a fantastic read! It takes forever though to get through as there is a lot of information to digest here. Firstly, there is no one political spectrum that is at fault, both sides of pushed at various times anti science endeavors. Secondly, it will take a lot of work in order to fix this, but its essential that it gets done. Probably the first step is to stop being so overreactive to people and actually trying to create a dialogue instead of name calling. Talking to people and trying to figure out where their apprehension is towards something can help far more then calling people idiots. Secondly, the realization that science is NOT anti religion. Science is about proving things, religion or god cannot be proved one way or the other, so science as a whole does not really care about it.
 
+4. <b>Chasing Stardust</b> by Natalie Starkey (4-30-22) - This was a more straight forward read. Talked a bit about the origins of the solar system, the current thoughts on where the asteroids and comets were originally created at, as well as the chemical analysis of the comets that leads them to think where they were created. It also delves into some of the missions to visit asteroids and comets and some of the science that has been learned from those missions. Interestingly, it also went into space mining a bit as well, talked about some of the benefits to it, while also delving into some of the many challenges that will need to be overcome as well. 
+
 
 ### Fiction
 
@@ -37,11 +39,11 @@
 
 ### Currently Reading
 
-1.	Catching Stardust by Natalie Starkey
+1.	The True Believer by Eric Boffer
 2.	Star Wars: The Force Awakens
 
-### Current Book Completed Count as of 4-28-2022
+### Current Book Completed Count as of 5-2-2022
 
-Non-fiction - 3\
+Non-fiction - 4\
 Fiction - 10
 
