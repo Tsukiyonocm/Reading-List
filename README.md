@@ -34,16 +34,17 @@
 
 9. <b>Elder Race</b> by Adrian Tchaikovsky (4-17-22) - This was another book I didn't have much expectation for honestly. I read this only because I liked another of the authors books and got a good deal on a preorder of it. The basic premise behind it is that any sufficiently advanced technology is indistinguishable from magic. In the story we have the Sorcerer as he becomes known drawn into a quest in order to stop a demon. Its here we find out the sorcerer is actually just someone who was supposed to be watching this lower species of humanoids and just writing reports on them and learning about them, but not interfering. All around this was a quick and interesting read, and honestly leaves me still wanting to read more of the authors other works.
 
-10. <b>Dark Matter</b> by Blake Crouch (4-28-22) - This was fantastic. I went into this not knowing much about it but the name seemed interesting and good reviews from someone I know. The story is very much a multiverse story which plays along the lines of something off Fringe or even the current MCU story arcs. The main character, Jason Dessen, largly an ordinary person is kidnapped one night and what follows is the story of getting back to his family. Though to find out he is sent to a mirror world of his and from there everything goes crazy. The author does a great job of making things fit together and feel confusing at times, leaving you guessing as well as Jason slowly puts the pieces back together. Fantastic and now looking forward to reading more of his work. 
+10. <b>Dark Matter</b> by Blake Crouch (4-28-22) - This was fantastic. I went into this not knowing much about it but the name seemed interesting and good reviews from someone I know. The story is very much a multiverse story which plays along the lines of something off Fringe or even the current MCU story arcs. The main character, Jason Dessen, largly an ordinary person is kidnapped one night and what follows is the story of getting back to his family. Though to find out he is sent to a mirror world of his and from there everything goes crazy. The author does a great job of making things fit together and feel confusing at times, leaving you guessing as well as Jason slowly puts the pieces back together. Fantastic and now looking forward to reading more of his work.
 
+11. <b>Star Wars: The Force Awakens</b> by Alan Dean Foster (5-19-22) - I decided I wanted to read the movies books finally. Was going to read all three, but decided to take a break after the second one. That said, I did enjoy the book the same as I enjoyed the movie. While its by no means perfect, the book did a good job of portraying what happened on the screen while building up a little bit that happened either off screen or in the heads of the characters. There was not anything spectacular here thats different, but it wasnt a scene for scene rehash like the Mandalorian book was. All around, enjoyable, but will likely not ever read it again.
 
 ### Currently Reading
 
 1.	The True Believer by Eric Boffer
-2.	Star Wars: The Force Awakens
+2.	Star Wars: The Last Jedi by Jason Fry
 
-### Current Book Completed Count as of 5-2-2022
+### Current Book Completed Count as of 5-22-2022
 
 Non-fiction - 4\
-Fiction - 10
+Fiction - 11
 
