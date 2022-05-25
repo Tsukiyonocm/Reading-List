@@ -42,11 +42,11 @@
 
 ### Currently Reading
 
-1.	The True Believer by Eric Boffer
+1.	Lifespan by David Sinclair
 2.	Star Wars: The Last Jedi by Jason Fry
 
-### Current Book Completed Count as of 5-22-2022
+### Current Book Completed Count as of 5-26-2022
 
-Non-fiction - 4\
+Non-fiction - 5\
 Fiction - 11
 
