@@ -39,14 +39,15 @@
 
 11. <b>Star Wars: The Force Awakens</b> by Alan Dean Foster (5-19-22) - I decided I wanted to read the movies books finally. Was going to read all three, but decided to take a break after the second one. That said, I did enjoy the book the same as I enjoyed the movie. While its by no means perfect, the book did a good job of portraying what happened on the screen while building up a little bit that happened either off screen or in the heads of the characters. There was not anything spectacular here thats different, but it wasnt a scene for scene rehash like the Mandalorian book was. All around, enjoyable, but will likely not ever read it again.
 
+12. <b>Star Wars: The Last Jedi</b> by Jason Fry (6-1-22) - All around I still enjoyed this movie and found the book to be a bit better. The book went into the heads a bit of the characters and got nuance that was missed in the movies since its a visual medium. Not to say the story line was perfect, but it did help it a bit in my opinion. Still falls in line though with the previous book in the sense that I will likely never go back to it again in the future. 
 
 ### Currently Reading
 
 1.	Lifespan by David Sinclair
-2.	Star Wars: The Last Jedi by Jason Fry
+2.	Homeland by R. A. Salvatore
 
-### Current Book Completed Count as of 5-26-2022
+### Current Book Completed Count as of 6-2-2022
 
 Non-fiction - 5\
-Fiction - 11
+Fiction - 12
 
