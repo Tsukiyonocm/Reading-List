@@ -15,6 +15,8 @@
 
 5. <b>The True Believer</b> by Eric Boffer (5-27-22) - Frankly I believe this book was not what I thought it was going to be. While it was a bit interesting, this seems to have gone into the clockwork of how movements get started, the mindset of the type of person who joins one, and how they ultimately fail or succeed. I believe I was more interested in reading about how some of the biggest mass movements in the past got started, more of a history lesson. This came across as more of a psychological study I think. There was things that was interesting to learn though. For instance, the religious and atheist are the same side of the political spectrum, the opposite of a religious zealot is actually someone who has no interest one way or another in a god. So there was bits of interest here for sure, just not what I was interested in.
 
+6. <b>Lifespan</b> by David Sinclair (6-20-22) - This was a fascinating book through and through. First off he goes through and gives a run down on the science and how they learned what they learned. Then he went on and talked about the things that can be done now. The obvious ones that is talked about is exercise and eating properly. While also going into things like using a sauna and a cryothermo tank to bring your body its stress points to relieve pain and introduce healing in general. Lastly, and probably the most interesting part of the book talked about all things being studied now and the possible things coming out in the future. I feel like I could have highlighted almost every page of these chapters and would still be salivating for more information. Overall, highly recommend the book and could even come back and follow up and read this again in the future or at least use it to look up other things for study.
+
 ### Fiction
 
 1. <b>The Living Dead</b> by George Romero and Daniel Kraus (12-19-21) - This was an overall interesting reading experience. The first couple of chapters of this book had me completely deja vu'ed, is that even a word? It had me to the point I had to go back through the last couple of years and order history to make sure I had not already read the book before. After this though, the book diverged and it appears to be a new story I hadn't read before. The story starts off going through different characters and various situations when the zombie apocalypse begins. From here we get to the end of the story where the revelation is quite intriguing if not a little contrived and sort of thrown out there out of the blue. While I agree with the moral here, I think it could have been weeded in the story a bit more, but overall the story was quite good and worth reading.
@@ -45,10 +47,10 @@
 
 ### Currently Reading
 
-1.	Lifespan by David Sinclair
+1.	How to Raise an Adult by Julie Lythcott-Haims
 2.	Resident Evil: Nemesis by S. D. Perry
 
-### Current Book Completed Count as of 6-13-2022
+### Current Book Completed Count as of 6-20-2022
 
-Non-fiction - 5\
+Non-fiction - 6\
 Fiction - 13
