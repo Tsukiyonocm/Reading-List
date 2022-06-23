@@ -43,14 +43,16 @@
 
 12. <b>Star Wars: The Last Jedi</b> by Jason Fry (6-1-22) - All around I still enjoyed this movie and found the book to be a bit better. The book went into the heads a bit of the characters and got nuance that was missed in the movies since its a visual medium. Not to say the story line was perfect, but it did help it a bit in my opinion. Still falls in line though with the previous book in the sense that I will likely never go back to it again in the future.
 
-13. <b>Homeland</b> by R. A. Salvatore (6-13-22) - I have not read this book since I was in high school, probably been at least 22 years. It is still as good now as it was then. Frankly the tales of Drizzt are what got me reading more fiction outside of Star Wars than any other book I have read. Before this series, I had read the Lord of the Rings, and thats basically it. I cant speak more highly of this series and I am looking forward to reading it more. I have many of the books in this line (about 22 I believe as of typing) and I will continue on until I get to the point where I have not read them yet. 
+13. <b>Homeland</b> by R. A. Salvatore (6-13-22) - I have not read this book since I was in high school, probably been at least 22 years. It is still as good now as it was then. Frankly the tales of Drizzt are what got me reading more fiction outside of Star Wars than any other book I have read. Before this series, I had read the Lord of the Rings, and thats basically it. I cant speak more highly of this series and I am looking forward to reading it more. I have many of the books in this line (about 22 I believe as of typing) and I will continue on until I get to the point where I have not read them yet.
+
+14. <b>Resident Evil: Nemesis</b> by S. D. Perry (6-22-22) - This story picked up during the events of Raccoon City that many of the other books have already gone into, though  this time it was dealing with Jill and a new Character Carlos. Overall it was on par with basically the rest of the series, its not going to win awards, but if you enjoy the universe, then it was decent enough. It also filled in some info about Trent as well, which was also a surprise and still curious if that little bit will be more filled in in the future. 
 
 ### Currently Reading
 
 1.	How to Raise an Adult by Julie Lythcott-Haims
-2.	Resident Evil: Nemesis by S. D. Perry
+2.	Planetfall by Emma Newman
 
-### Current Book Completed Count as of 6-20-2022
+### Current Book Completed Count as of 6-22-2022
 
 Non-fiction - 6\
-Fiction - 13
+Fiction - 14
