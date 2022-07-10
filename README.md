@@ -45,14 +45,16 @@
 
 13. <b>Homeland</b> by R. A. Salvatore (6-13-22) - I have not read this book since I was in high school, probably been at least 22 years. It is still as good now as it was then. Frankly the tales of Drizzt are what got me reading more fiction outside of Star Wars than any other book I have read. Before this series, I had read the Lord of the Rings, and thats basically it. I cant speak more highly of this series and I am looking forward to reading it more. I have many of the books in this line (about 22 I believe as of typing) and I will continue on until I get to the point where I have not read them yet.
 
-14. <b>Resident Evil: Nemesis</b> by S. D. Perry (6-22-22) - This story picked up during the events of Raccoon City that many of the other books have already gone into, though  this time it was dealing with Jill and a new Character Carlos. Overall it was on par with basically the rest of the series, its not going to win awards, but if you enjoy the universe, then it was decent enough. It also filled in some info about Trent as well, which was also a surprise and still curious if that little bit will be more filled in in the future. 
+14. <b>Resident Evil: Nemesis</b> by S. D. Perry (6-22-22) - This story picked up during the events of Raccoon City that many of the other books have already gone into, though  this time it was dealing with Jill and a new Character Carlos. Overall it was on par with basically the rest of the series, its not going to win awards, but if you enjoy the universe, then it was decent enough. It also filled in some info about Trent as well, which was also a surprise and still curious if that little bit will be more filled in in the future.
+
+15. <b> Planetfall</b> by Emma Newman (7-9-22) - This was sort of a spur of the moment book for me. I had no idea of what I was getting in for, just that the description sounded good. The main character is Ren (short for Renata) who is an engineer. She is part of a group of colonist who left what sounds like a dying Earth for a chance to meet God because of the enlightenment of Suh. The rest of the story starts filling in the blanks of what happens from their first planetfall when they first discovered Gods City to the colony that is now settled today. Honestly, it was a good bit interesting and intriguing. The new bits of info is sprinkled throughout the story just enough to keep you wondering until the end when everything comes together. All around, was a good book, might look into the other books in the series as well just out of curiosity.
 
 ### Currently Reading
 
 1.	How to Raise an Adult by Julie Lythcott-Haims
-2.	Planetfall by Emma Newman
+2.	The Expanse: Leviathan Falls by James S. A. Corey
 
-### Current Book Completed Count as of 6-22-2022
+### Current Book Completed Count as of 7-10-2022
 
 Non-fiction - 6\
-Fiction - 14
+Fiction - 15
