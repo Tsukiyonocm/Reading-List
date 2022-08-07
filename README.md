@@ -49,12 +49,14 @@
 
 15. <b> Planetfall</b> by Emma Newman (7-9-22) - This was sort of a spur of the moment book for me. I had no idea of what I was getting in for, just that the description sounded good. The main character is Ren (short for Renata) who is an engineer. She is part of a group of colonist who left what sounds like a dying Earth for a chance to meet God because of the enlightenment of Suh. The rest of the story starts filling in the blanks of what happens from their first planetfall when they first discovered Gods City to the colony that is now settled today. Honestly, it was a good bit interesting and intriguing. The new bits of info is sprinkled throughout the story just enough to keep you wondering until the end when everything comes together. All around, was a good book, might look into the other books in the series as well just out of curiosity.
 
+16. <b>The Expanse: Leviathan Falls</b> by James S. A. Corey (8-6-22) - Fantastic finale to the series. didn't end the way that I expected, but it was still a satisfactory ending. Of note from the story: "I absolutely believe that people are more good on balance than bad. All the wars and all of the cruelty and all of the violence. I'm not looking away from any of that, and I still think there's something beautiful about being what we are. History is soaked in blood. The future probably will be too. But for every atrocity, there's a thousand small kindnesses that no one noticed. A hundred people who spent their lives loving and caring for each other. A few moments of real grace. Maybe it's only a little more good than bad in us, but.."
+
 ### Currently Reading
 
 1.	How to Raise an Adult by Julie Lythcott-Haims
-2.	The Expanse: Leviathan Falls by James S. A. Corey
+2.	Star Wars: The Empire Strikes Back: From a Certain Point of View by Assorted Authors
 
 ### Current Book Completed Count as of 7-10-2022
 
 Non-fiction - 6\
-Fiction - 15
+Fiction - 16
