@@ -17,6 +17,8 @@
 
 6. <b>Lifespan</b> by David Sinclair (6-20-22) - This was a fascinating book through and through. First off he goes through and gives a run down on the science and how they learned what they learned. Then he went on and talked about the things that can be done now. The obvious ones that is talked about is exercise and eating properly. While also going into things like using a sauna and a cryothermo tank to bring your body its stress points to relieve pain and introduce healing in general. Lastly, and probably the most interesting part of the book talked about all things being studied now and the possible things coming out in the future. I feel like I could have highlighted almost every page of these chapters and would still be salivating for more information. Overall, highly recommend the book and could even come back and follow up and read this again in the future or at least use it to look up other things for study.
 
+7. <b>How to Raise an Adult</b> by Julie Lythcott-Haims (8-16-22) - The book delved into over-parenting to a degree that I didnt even really realize happened. For instance, parents doing their childrens school work in high school and college so that their child would appear to be succeeding. This is so they either can get into a good college or to help them land that good job after their college life. It delved into the downsides of this, which is largely a person who knows not how to deal with failure or even how to deal with daily problems as they arise in everyday life. In addition, it gives you some advice on how to step back and let your child learn to grow and become and adult, instead of a grown up child. Frankly was an overall great read which I could see myself referencing back to over the years as needed for a reminder on what not to do, and maybe some resources to improve myself as well.
+
 ### Fiction
 
 1. <b>The Living Dead</b> by George Romero and Daniel Kraus (12-19-21) - This was an overall interesting reading experience. The first couple of chapters of this book had me completely deja vu'ed, is that even a word? It had me to the point I had to go back through the last couple of years and order history to make sure I had not already read the book before. After this though, the book diverged and it appears to be a new story I hadn't read before. The story starts off going through different characters and various situations when the zombie apocalypse begins. From here we get to the end of the story where the revelation is quite intriguing if not a little contrived and sort of thrown out there out of the blue. While I agree with the moral here, I think it could have been weeded in the story a bit more, but overall the story was quite good and worth reading.
@@ -53,10 +55,10 @@
 
 ### Currently Reading
 
-1.	How to Raise an Adult by Julie Lythcott-Haims
+1.	Mindset by Carol S Dweck
 2.	Star Wars: The Empire Strikes Back: From a Certain Point of View by Assorted Authors
 
-### Current Book Completed Count as of 7-10-2022
+### Current Book Completed Count as of 8-17-22
 
-Non-fiction - 6\
+Non-fiction - 7\
 Fiction - 16
