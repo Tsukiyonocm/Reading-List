@@ -51,12 +51,14 @@
 
 16. <b>The Expanse: Leviathan Falls</b> by James S. A. Corey (8-6-22) - Fantastic finale to the series. didn't end the way that I expected, but it was still a satisfactory ending. Of note from the story: "I absolutely believe that people are more good on balance than bad. All the wars and all of the cruelty and all of the violence. I'm not looking away from any of that, and I still think there's something beautiful about being what we are. History is soaked in blood. The future probably will be too. But for every atrocity, there's a thousand small kindnesses that no one noticed. A hundred people who spent their lives loving and caring for each other. A few moments of real grace. Maybe it's only a little more good than bad in us, but.."
 
+17. <b>Star Wars: The Empire Strikes Back: From a Certain Point of View</b> by Assorted Authors (9-4-22) - I enjoyed this for much the same reason I liked the first one. The stories show that in this vast world there are other people involved that have their own tales going on as well. Not all of the stories were great, some were average at best, but it fleshed out the world. And to be honest, most of us live completely mundane lives that would fit here as well. I really enjoyed the bits about the bounty hunters here as most of them there has not been a ton written about, at least nothing that is still valid anyway. Still overall, the stories were interesting but its not likely something I would come back to read again in the future.
+
 ### Currently Reading
 
 1.	How to Raise an Adult by Julie Lythcott-Haims
-2.	Star Wars: The Empire Strikes Back: From a Certain Point of View by Assorted Authors
+2.	All Systems Red by Martha Wells
 
 ### Current Book Completed Count as of 7-10-2022
 
 Non-fiction - 6\
-Fiction - 16
+Fiction - 17
