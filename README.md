@@ -55,12 +55,14 @@
 
 17. <b>Star Wars: The Empire Strikes Back: From a Certain Point of View</b> by Assorted Authors (9-4-22) - I enjoyed this for much the same reason I liked the first one. The stories show that in this vast world there are other people involved that have their own tales going on as well. Not all of the stories were great, some were average at best, but it fleshed out the world. And to be honest, most of us live completely mundane lives that would fit here as well. I really enjoyed the bits about the bounty hunters here as most of them there has not been a ton written about, at least nothing that is still valid anyway. Still overall, the stories were interesting but its not likely something I would come back to read again in the future.
 
+18. <b>All Systems Red</b> by Martha Wells (9-9-22) - This was a short and fun read, wasnt anything super special to me but I did like it. Basically is just written from the perspective of a robot who is tasked as a security bot for a research group. Its generally its own thoughts and how much it would rather be watching TV shows and not having to deal with the humans directly. I am not sure yet if I will continue the series, it was interesting but not much endeared it to me, so time will tell. 
+
 ### Currently Reading
 
 1.	How to Raise an Adult by Julie Lythcott-Haims
-2.	All Systems Red by Martha Wells
+2.	Age of Ash by Daniel Abraham
 
-### Current Book Completed Count as of 8-17-22
+### Current Book Completed Count as of 8-12-22
 
 Non-fiction - 6\
-Fiction - 17
+Fiction - 18
