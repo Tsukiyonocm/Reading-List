@@ -19,6 +19,8 @@
 
 7. <b>How to Raise an Adult</b> by Julie Lythcott-Haims (8-16-22) - The book delved into over-parenting to a degree that I didnt even really realize happened. For instance, parents doing their childrens school work in high school and college so that their child would appear to be succeeding. This is so they either can get into a good college or to help them land that good job after their college life. It delved into the downsides of this, which is largely a person who knows not how to deal with failure or even how to deal with daily problems as they arise in everyday life. In addition, it gives you some advice on how to step back and let your child learn to grow and become and adult, instead of a grown up child. Frankly was an overall great read which I could see myself referencing back to over the years as needed for a reminder on what not to do, and maybe some resources to improve myself as well.
 
+8. <b>Mindset</b> by Carol S. Dweck (9-21-22) - I largely read about this because of it mentioned in some of the previous books I read, including the one right above this. The basics of this is that people can have two types of mindsets, Fixed and Growth. The growth mindset is what you should aim for as it allows you to overcome your adversity and see growth from your errors and mistakes when things don't go your way in life. Whereas the fixed mindset bogs you down with self-doubt if things don't go your way and can largely lead to stagnation. Its a bit more involved than this because people have both mindsets in them at any given time, though they generally involved different aspects of their life. I hopefully can take some of this in order to fix some aspects of my own that I am unhappy with.
+
 ### Fiction
 
 1. <b>The Living Dead</b> by George Romero and Daniel Kraus (12-19-21) - This was an overall interesting reading experience. The first couple of chapters of this book had me completely deja vu'ed, is that even a word? It had me to the point I had to go back through the last couple of years and order history to make sure I had not already read the book before. After this though, the book diverged and it appears to be a new story I hadn't read before. The story starts off going through different characters and various situations when the zombie apocalypse begins. From here we get to the end of the story where the revelation is quite intriguing if not a little contrived and sort of thrown out there out of the blue. While I agree with the moral here, I think it could have been weeded in the story a bit more, but overall the story was quite good and worth reading.
@@ -55,14 +57,14 @@
 
 17. <b>Star Wars: The Empire Strikes Back: From a Certain Point of View</b> by Assorted Authors (9-4-22) - I enjoyed this for much the same reason I liked the first one. The stories show that in this vast world there are other people involved that have their own tales going on as well. Not all of the stories were great, some were average at best, but it fleshed out the world. And to be honest, most of us live completely mundane lives that would fit here as well. I really enjoyed the bits about the bounty hunters here as most of them there has not been a ton written about, at least nothing that is still valid anyway. Still overall, the stories were interesting but its not likely something I would come back to read again in the future.
 
-18. <b>All Systems Red</b> by Martha Wells (9-9-22) - This was a short and fun read, wasnt anything super special to me but I did like it. Basically is just written from the perspective of a robot who is tasked as a security bot for a research group. Its generally its own thoughts and how much it would rather be watching TV shows and not having to deal with the humans directly. I am not sure yet if I will continue the series, it was interesting but not much endeared it to me, so time will tell. 
+18. <b>All Systems Red</b> by Martha Wells (9-9-22) - This was a short and fun read, wasnt anything super special to me but I did like it. Basically is just written from the perspective of a robot who is tasked as a security bot for a research group. Its generally its own thoughts and how much it would rather be watching TV shows and not having to deal with the humans directly. I am not sure yet if I will continue the series, it was interesting but not much endeared it to me, so time will tell.
 
 ### Currently Reading
 
-1.	How to Raise an Adult by Julie Lythcott-Haims
+1.	The Hot Zone by Richard Preston
 2.	Age of Ash by Daniel Abraham
 
-### Current Book Completed Count as of 8-12-22
+### Current Book Completed Count as of 9-24-22
 
-Non-fiction - 6\
+Non-fiction - 8\
 Fiction - 18
