@@ -21,6 +21,8 @@
 
 8. <b>Mindset</b> by Carol S. Dweck (9-21-22) - I largely read about this because of it mentioned in some of the previous books I read, including the one right above this. The basics of this is that people can have two types of mindsets, Fixed and Growth. The growth mindset is what you should aim for as it allows you to overcome your adversity and see growth from your errors and mistakes when things don't go your way in life. Whereas the fixed mindset bogs you down with self-doubt if things don't go your way and can largely lead to stagnation. Its a bit more involved than this because people have both mindsets in them at any given time, though they generally involved different aspects of their life. I hopefully can take some of this in order to fix some aspects of my own that I am unhappy with.
 
+9. <b>The Hot Zone</b> by Richard Preston (10-17-22) - A interesting read especially at the beginning of the story. In the beginning it goes into the starting of a Marburg infection and the journey that it likely took with its first main stream infection. The details it goes into on how it reacts inside the body, the blood coming out of the various openings in the body and the eventual explosion, so to speak, of the patient inside the ER was just gruesome. To top it off, this is the more tame version that is similar to Ebola, and Ebola is worse. The rest of the tale once it came over to Reston, Virginia, while interesting, was not as interesting. This was a more modern detective tale and walked you through the events and some of the thoughts that went through the minds of the people involved. All around, gruesome and hope Ebola never becomes airborne and able to transmit like a flu bug.
+
 ### Fiction
 
 1. <b>The Living Dead</b> by George Romero and Daniel Kraus (12-19-21) - This was an overall interesting reading experience. The first couple of chapters of this book had me completely deja vu'ed, is that even a word? It had me to the point I had to go back through the last couple of years and order history to make sure I had not already read the book before. After this though, the book diverged and it appears to be a new story I hadn't read before. The story starts off going through different characters and various situations when the zombie apocalypse begins. From here we get to the end of the story where the revelation is quite intriguing if not a little contrived and sort of thrown out there out of the blue. While I agree with the moral here, I think it could have been weeded in the story a bit more, but overall the story was quite good and worth reading.
@@ -61,10 +63,16 @@
 
 ### Currently Reading
 
-1.	The Hot Zone by Richard Preston
+1.	Yes to Life: In Spite of Everything by Viktor Frankl
 2.	Age of Ash by Daniel Abraham
 
-### Current Book Completed Count as of 9-24-22
+### Current Book Completed Count as of 10-17-22
 
-Non-fiction - 8\
+Non-fiction - 9\
 Fiction - 18
+
+
+
+
+
+
