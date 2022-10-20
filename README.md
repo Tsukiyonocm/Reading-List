@@ -61,15 +61,17 @@
 
 18. <b>All Systems Red</b> by Martha Wells (9-9-22) - This was a short and fun read, wasnt anything super special to me but I did like it. Basically is just written from the perspective of a robot who is tasked as a security bot for a research group. Its generally its own thoughts and how much it would rather be watching TV shows and not having to deal with the humans directly. I am not sure yet if I will continue the series, it was interesting but not much endeared it to me, so time will tell.
 
+19. <b>Age of Ash</b> by Daniel Abraham (10-19-22) - I largely read this because the author is one of the authors of The Expanse, which was just fantastic. This was more of a standard fantasy world but overall it wasnt that bad. I am not sure yet if I liked it enough to read the subsequent stories that will be written since this is expected to be a trilogy, but it was ok. Basic story is a girl named Alys, loses her brother and pretty much just tries to make her life just like his. There is a subplot going in the background naturally, but the basics of the story revolve around Alys and how she changes over the course of a year or so in which the story takes place.
+
 ### Currently Reading
 
 1.	Yes to Life: In Spite of Everything by Viktor Frankl
-2.	Age of Ash by Daniel Abraham
+2.	Resident Evil: Code Veronica by S. D. Perry
 
-### Current Book Completed Count as of 10-17-22
+### Current Book Completed Count as of 10-20-22
 
 Non-fiction - 9\
-Fiction - 18
+Fiction - 19
 
 
 
