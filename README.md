@@ -23,6 +23,11 @@
 
 9. <b>The Hot Zone</b> by Richard Preston (10-17-22) - A interesting read especially at the beginning of the story. In the beginning it goes into the starting of a Marburg infection and the journey that it likely took with its first main stream infection. The details it goes into on how it reacts inside the body, the blood coming out of the various openings in the body and the eventual explosion, so to speak, of the patient inside the ER was just gruesome. To top it off, this is the more tame version that is similar to Ebola, and Ebola is worse. The rest of the tale once it came over to Reston, Virginia, while interesting, was not as interesting. This was a more modern detective tale and walked you through the events and some of the thoughts that went through the minds of the people involved. All around, gruesome and hope Ebola never becomes airborne and able to transmit like a flu bug.
 
+10. <b>Yes to Life, In Spite of Everything</b> by Viktor Frankl (10-29-22) - This was interesting. The main thing I found interesting is that this guy can have a positive outlook on life after having quite literally lived through the holocaust. Not just that he was alive, he was quite literally an inmate in the concentration camps Theresienstadt, then Auschwitz, and finally Bergen-Belson. While the book was not necessarily what I was hoping it was, it was still a good read. In particular this quote speaking on worldviews and collective guilt:
+
+ > "That worldview that declares an individual guilty because others from the same group to which he happens to belong have actually or allegedly committed some kind of offense? And how ridiculous this outlook seems to us today -- finally! Holding someone to account because of their nationality, native language, or place of birth must seem as ridiculous to us today as making them responsible for their own height.
+
+
 ### Fiction
 
 1. <b>The Living Dead</b> by George Romero and Daniel Kraus (12-19-21) - This was an overall interesting reading experience. The first couple of chapters of this book had me completely deja vu'ed, is that even a word? It had me to the point I had to go back through the last couple of years and order history to make sure I had not already read the book before. After this though, the book diverged and it appears to be a new story I hadn't read before. The story starts off going through different characters and various situations when the zombie apocalypse begins. From here we get to the end of the story where the revelation is quite intriguing if not a little contrived and sort of thrown out there out of the blue. While I agree with the moral here, I think it could have been weeded in the story a bit more, but overall the story was quite good and worth reading.
@@ -65,12 +70,12 @@
 
 ### Currently Reading
 
-1.	Yes to Life: In Spite of Everything by Viktor Frankl
+1.	What Unites Us by Dan Rather
 2.	Resident Evil: Code Veronica by S. D. Perry
 
-### Current Book Completed Count as of 10-20-22
+### Current Book Completed Count as of 10-29-22
 
-Non-fiction - 9\
+Non-fiction - 10\
 Fiction - 19
 
 
