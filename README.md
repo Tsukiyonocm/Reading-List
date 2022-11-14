@@ -68,15 +68,17 @@
 
 19. <b>Age of Ash</b> by Daniel Abraham (10-19-22) - I largely read this because the author is one of the authors of The Expanse, which was just fantastic. This was more of a standard fantasy world but overall it wasnt that bad. I am not sure yet if I liked it enough to read the subsequent stories that will be written since this is expected to be a trilogy, but it was ok. Basic story is a girl named Alys, loses her brother and pretty much just tries to make her life just like his. There is a subplot going in the background naturally, but the basics of the story revolve around Alys and how she changes over the course of a year or so in which the story takes place.
 
+20. <b>Resident Evil: Code Veronica</b> by S. D. Perry (11-09-22) - I never really played the game that this story is based on. This one seems a bit more mystical then the previous entries in the series, but I still enjoyed it quite a bit honestly. I hope they remake the game at some point so I can play through it and see how similar it is to the overall story. Got to feel a bit more for Claire and understanding that all these events happened to someone who has just basically gotten to college age. Mix in some of the usual Umbrella maniacs and a bit of over powered psychic abilities, and a bit of split personalities, and you get a fun story. All around probably one of the better entries into the story in my opinion anyway.
+
 ### Currently Reading
 
 1.	What Unites Us by Dan Rather
-2.	Resident Evil: Code Veronica by S. D. Perry
+2.	Canticle by R.A. Salvatore
 
-### Current Book Completed Count as of 10-29-22
+### Current Book Completed Count as of 11-13-22
 
 Non-fiction - 10\
-Fiction - 19
+Fiction - 20
 
 
 
