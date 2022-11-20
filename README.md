@@ -27,6 +27,7 @@
 
  > "That worldview that declares an individual guilty because others from the same group to which he happens to belong have actually or allegedly committed some kind of offense? And how ridiculous this outlook seems to us today -- finally! Holding someone to account because of their nationality, native language, or place of birth must seem as ridiculous to us today as making them responsible for their own height.
 
+11. <b>What Unites Us</b> by Dan Rather (11-20-22) - Overall this was a good book. It was a bit of a life story of events that he was involved with, mixed with particular feelings of what he feels unites us as a people. It was interesting hearing about the events he had lived through, his personal viewings of the 60's social and racial changes. Hearing his views of watergate and how its related to peoples reactions to it. I fail at getting anything from the overall story thats memorable in the sense of soundbites perse, but the overall book was quite hopeful I believe and was worth the read regardless.
 
 ### Fiction
 
@@ -72,12 +73,12 @@
 
 ### Currently Reading
 
-1.	What Unites Us by Dan Rather
+1.	Japans Infamous Unit 731 by Hal Gold
 2.	Canticle by R.A. Salvatore
 
-### Current Book Completed Count as of 11-13-22
+### Current Book Completed Count as of 11-20-22
 
-Non-fiction - 10\
+Non-fiction - 11\
 Fiction - 20
 
 
