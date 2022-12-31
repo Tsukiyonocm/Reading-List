@@ -14,14 +14,16 @@
 2. <b>Patron Tales</b> by Russell Smeaton  (12-16-22) - This was a mixed bag of stories which is a mixture of dark fantasy and just plain odd. Probably my favorite story was the Etch-a-sketch story which just seemed quite cool honestly. A bit of a mystery and a pleasant ending that was not quite what I would have suspected. Another story called "Sandcastle" seems like the prologue to a dark Narnia story or something. Seems to me it could have leapt into a much larger world. Overall, the stories were mixed with various frogs, chickens, and a bunch (or one?) cat!
 
 
+
+
 ### Currently Reading
 
-1.	Japans Infamous Unit 731 by Hal Gold
-2.	Star Wars: The High Republic: The Rising Storm
+1.	Humankind by Rutger Bregman
+2.	The Expanse: Memories Legion by James S. A. Corey
 
-### Current Book Completed Count as of 11-23-22
+### Current Book Completed Count as of 12-31-22
 
-Non-fiction -1\
+Non-fiction - 1\
 Fiction - 2
 
 
