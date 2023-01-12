@@ -13,18 +13,18 @@
 
 2. <b>Patron Tales</b> by Russell Smeaton  (12-16-22) - This was a mixed bag of stories which is a mixture of dark fantasy and just plain odd. Probably my favorite story was the Etch-a-sketch story which just seemed quite cool honestly. A bit of a mystery and a pleasant ending that was not quite what I would have suspected. Another story called "Sandcastle" seems like the prologue to a dark Narnia story or something. Seems to me it could have leapt into a much larger world. Overall, the stories were mixed with various frogs, chickens, and a bunch (or one?) cat!
 
-
+3. <b>The Expanse: Memories Legion</b> by James S. A. Corey (1/9/23) - Finishing the series out by reading the book that contains all the short stories that was written thru the run of the main series. Filling in some of the back stories of Amos, Erich, and Solomon Epstein among many others. Was a fantastic read and the final story was sort of a nice ending to the series. I really hope they fill in the universe again at some point, but I believe this may be it. Honestly do not regret reading a single story in this series as a whole.
 
 
 ### Currently Reading
 
 1.	Humankind by Rutger Bregman
-2.	The Expanse: Memories Legion by James S. A. Corey
+2.	The Witcher: Baptism of Fire by Andrzej Sapkowski
 
-### Current Book Completed Count as of 12-31-22
+### Current Book Completed Count as of 1-11-23
 
 Non-fiction - 1\
-Fiction - 2
+Fiction - 3
 
 
 
