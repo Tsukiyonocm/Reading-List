@@ -12,6 +12,10 @@
 
 3. <b>Humankind</b> by Rutger Bregman (2-2-23) - This was a fantastic read. I personally have always felt that I believed that humans are by default selfish. I always loved hearing about those people that do good things. Feel good stories for me get into the heart strings very easily, but I also felt this was a rarity more then the norm. After reading this book, I believe I may be mistaken, that people are not inherently garbage and that there is good in the whole. I also find it interesting that the final chapter of this book goes over the Christmas Truce from World War 1, which is actually the topic of the next book I am going to read. I also am reminded of a passage from the final Expanse book. In which Holden is talking about how humanity is capable of terrible things, but that in the end, the good things we do outnumber the bad, even if just a little. I hope that this is the world that we live in, and I shall try to keep this mindset in the future more and change my way of thinking and maybe interactions with others.
 
+4. <b>The True Story of the Christmas Truce</b> by Anthony Richards (2/19/22) - So I had been planning on reading about this event since I listened to the song by Sabbaton, The Christmas Truce. Then the last book I read prior to this also went into the events that transpired back in WW1. Frankly it was as its written, a large portion of the armies in this particular area of France decided to take off the days of and sometimes much later than Christmas 1914. Usually this was put into place because they wanted to celebrate and spent time burying those who had died on the days and weeks prior in no mans land, but sometimes this continued because everyone felt the need to not ruin a good thing. Often times things would end and go back to war as usual once the next regiment got shifted in. All around a quite impressive feat to have happened in the middle of wartime.
+
+5. <b>The Minimalist Home</b> by Joshua Becker (3/23/23) - So this is just simple book about owning less about the authors best ideas for tackling your whole house. Ultimately I read this because the topic interest me and I find myself at least moving this way for the future. Not to say I am going to go down to 30 belongings or anything, but I have been trying to overall buy less and get rid of some of the stuff I owned myself anyway. Overall the book was informative, though nothing revolutionary if you have read on the topic in the past.
+
 ### Fiction
 1. <b>Star Wars: The High Republic - The Rising Star</b> by Cavan Scott (12-14-22) - This has been a surprisingly good story arc so far I think. The series seems to do some things different then other book series in the sense that a large portion of the book seems to take place over a couple of hours of time. This is in contrast where many other stories just seems to pass on for months at a time. In this case the main part of the story follows another of the "Great Works" to bring unity to the republic, in this case its a great fair. Naturally this doesn't go to plan and things get interrupted by the Nihil. That with the more human feeling Jedi in the story arc as a whole has me interested in following up. I might even have to pay full price for the rest of the stories.
 
@@ -21,16 +25,18 @@
 
 4. <b>The Witcher: Baptism of Fire</b> by Andrzej Sapkowski (2/13/23) - Overall this sort of felt like it was more of a filler episode of a show more so then the main story. It seems to be setting up the narrative for the future books as it didnt really delve to much outside of setting up a few events and have a lot of character development. We get a bit of what happened to Yennefer, Geralt and Ciri after the events of the last book and the battle at the magic island, but we dont really learn much more then that, especially with Ciri. It was still interesting getting to know some more characters, I just wish there would have a been a bit more meat to the story.
 
+5. <b>Recursion</b> by Blake Crouch (2/21/23) - Blake Crouch is easily becoming one of my favorite authors. Everything I have read by him has been pure gold, and this is no exception. Think of a chair that can take you back to any memory largely of your choice, you could go back in time and relive your life starting from a particular moment full memories intact and change events that you did not like in your life. The downside is, once you get back to the moment in time you choose to go back in time, everyone now has a second set of memories of this previous life as well as the memories of the current life. So if you died in the first life but were saved in the second, you now have the memories of dying. Wash rinse repeat and abuse and you have the basis for this story. Fantastic.
+
 
 ### Currently Reading
 
-1.	The True Story of the Christmas Truce by Anthony Richards
-2.	Recursion by Blake Crouch
+1.	The Vanishing Face of Gaia by James Lovelock
+2.	The Traitor Baru Cormorant by Seth Dickinson
 
-### Current Book Completed Count as of 2-14-23
+### Current Book Completed Count as of 3/23/23
 
-Non-fiction - 3\
-Fiction - 4
+Non-fiction - 5\
+Fiction - 5
 
 
 
