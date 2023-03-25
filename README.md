@@ -27,16 +27,18 @@
 
 5. <b>Recursion</b> by Blake Crouch (2/21/23) - Blake Crouch is easily becoming one of my favorite authors. Everything I have read by him has been pure gold, and this is no exception. Think of a chair that can take you back to any memory largely of your choice, you could go back in time and relive your life starting from a particular moment full memories intact and change events that you did not like in your life. The downside is, once you get back to the moment in time you choose to go back in time, everyone now has a second set of memories of this previous life as well as the memories of the current life. So if you died in the first life but were saved in the second, you now have the memories of dying. Wash rinse repeat and abuse and you have the basis for this story. Fantastic.
 
+6. <b>The Traitor Baru Cormorant</b> by Seth Dickinson (3/24/23) - This was a book I had bought on a while a couple of years ago and just finally decided to actually read it. Overall I was not super impressed with the book, but the ending now has me deciding if I want to continue the series or not. I found the twist at the end to be quite good and was not really expecting it overall. Plus the way the final couple of chapters were handled was also quite good. Overall, the majority of the book is just a bland fantasy world from the perspective of an accountant for an empire, but then things happen and we find that there is a bit more depth here as well. I like the character as a whole, a tortured soul who wants a chance to free her people, but I just wish the earlier parts had gotten things moving a bit quicker then it did.
+
 
 ### Currently Reading
 
 1.	The Vanishing Face of Gaia by James Lovelock
-2.	The Traitor Baru Cormorant by Seth Dickinson
+2.	Resident Evil: Zero Hour by S. D. Perry
 
-### Current Book Completed Count as of 3/23/23
+### Current Book Completed Count as of 3/24/23
 
 Non-fiction - 5\
-Fiction - 5
+Fiction - 6
 
 
 
