@@ -29,16 +29,20 @@
 
 6. <b>The Traitor Baru Cormorant</b> by Seth Dickinson (3/24/23) - This was a book I had bought on a while a couple of years ago and just finally decided to actually read it. Overall I was not super impressed with the book, but the ending now has me deciding if I want to continue the series or not. I found the twist at the end to be quite good and was not really expecting it overall. Plus the way the final couple of chapters were handled was also quite good. Overall, the majority of the book is just a bland fantasy world from the perspective of an accountant for an empire, but then things happen and we find that there is a bit more depth here as well. I like the character as a whole, a tortured soul who wants a chance to free her people, but I just wish the earlier parts had gotten things moving a bit quicker then it did.
 
+7. <b>Goosebumps: Welcome to Dead House</b> by R. L. Stein (4/4/23) - I debated if I would count this as it was a bedtime story to Aydan, but I figured, it is still a book and I may as well count it. Frankly it has probably been nearly 25 years at least since I read this book initially. While I still enjoyed it for what it was, its not as good as I remember probably largely just cause its geared towards the childrens age range. That said, I also feel like they updated some stuff in the book since I read. At one point in the story, the kids are growing thru the graveyard reading the gravestones and some of the deaths are listed as early 2010s I believe, which would have been a far time from a book written in the 90s. Either way, Aydan enjoyed the book and shall likely read others to him in the future as well.
+
+8. <b>Resident Evil: Zero Hour</b> by S. D. Perry (4/6/23) - The final book in the Resident Evil based books went back to the beginning, though as the side to the beginning. The book focuses on the events of Resident Evil 0 which plays out concurrently to Resident Evil 1. All around the story was enjoyable and while I have not fully played this particular game, I am sure it played out quite much like the game in most respects. I sort of got thrown off by this as I was expecting a follow up to the previous novels but it appears the series plays out from the various games and are not a full on universe of books. I only just found this out but still glad I read the series overall. The books themselves are all average at best, but worth the read if you were a fan of the series.
+
 
 ### Currently Reading
 
 1.	The Vanishing Face of Gaia by James Lovelock
-2.	Resident Evil: Zero Hour by S. D. Perry
+2.	Star Wars: Thrawn Ascendancy by Timothy Zahn
 
-### Current Book Completed Count as of 3/24/23
+### Current Book Completed Count as of 4/7/23
 
 Non-fiction - 5\
-Fiction - 6
+Fiction - 8
 
 
 
