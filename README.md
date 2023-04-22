@@ -16,7 +16,7 @@
 
 5. <b>The Minimalist Home</b> by Joshua Becker (3/23/23) - So this is just simple book about owning less about the authors best ideas for tackling your whole house. Ultimately I read this because the topic interest me and I find myself at least moving this way for the future. Not to say I am going to go down to 30 belongings or anything, but I have been trying to overall buy less and get rid of some of the stuff I owned myself anyway. Overall the book was informative, though nothing revolutionary if you have read on the topic in the past.
 
-6. <b>The Vanishing Face of Gaia</b> by James Lovelock (4-21-22) - So the main premise of the book and James Lovelock in general is the Gaia Theory, to my understanding, the theory stands that the earth itself is capable of controlling its own climate as a human body does to keep it in homeostasis for life. Like a human being getting sick though, eventually so much can be dumped into it that you catch a cold. The world adjust to this as much as it can, but eventually it becomes to much and much of its life force can be killed off and a new normal begins. This particular book I was interested in because he is a big proponent of nuclear energy which I perosnally am not to familiar with the pros and cons of it. He is not so much a fan of the other renewables though such as wind, solar (except solar thermal), and hydro. The main complaint is that those are sort of a using a bandaid to heal a gunshot wound, they do little more then offer platitudes and really dont solve the problem at large. Was a fascinating book for sure, though I feel this quote is probably the most interesting: 
+6. <b>The Vanishing Face of Gaia</b> by James Lovelock (4-21-22) - So the main premise of the book and James Lovelock in general is the Gaia Theory, to my understanding, the theory stands that the earth itself is capable of controlling its own climate as a human body does to keep it in homeostasis for life. Like a human being getting sick though, eventually so much can be dumped into it that you catch a cold. The world adjust to this as much as it can, but eventually it becomes to much and much of its life force can be killed off and a new normal begins. This particular book I was interested in because he is a big proponent of nuclear energy which I perosnally am not to familiar with the pros and cons of it. He is not so much a fan of the other renewables though such as wind, solar (except solar thermal), and hydro. The main complaint is that those are sort of a using a bandaid to heal a gunshot wound, they do little more then offer platitudes and really dont solve the problem at large. Was a fascinating book for sure, though I feel this quote is probably the most interesting: <br>
 <i>In fifty years in the whole worldwide nuclear industry no more than one hundred have died. Compare this with the tens of thousands who died in the coal and oil industries and the hundreds of thousands who died in making renewable energy or from the consequences of using it. Yes, hydroelectricity is “renewable,” but who notices how dangerous it is until a dam bursts?<i>
 
 ### Fiction
@@ -39,12 +39,12 @@
 
 ### Currently Reading
 
-1.	The Vanishing Face of Gaia by James Lovelock
+1.	This is Not Propaganda: Adventures in the War Against Reality by Peter Pomerantsev
 2.	Star Wars: Thrawn Ascendancy by Timothy Zahn
 
-### Current Book Completed Count as of 4/7/23
+### Current Book Completed Count as of 4/22/23
 
-Non-fiction - 5\
+Non-fiction - 6\
 Fiction - 8
 
 
