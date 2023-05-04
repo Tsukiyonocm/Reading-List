@@ -36,16 +36,17 @@
 
 8. <b>Resident Evil: Zero Hour</b> by S. D. Perry (4/6/23) - The final book in the Resident Evil based books went back to the beginning, though as the side to the beginning. The book focuses on the events of Resident Evil 0 which plays out concurrently to Resident Evil 1. All around the story was enjoyable and while I have not fully played this particular game, I am sure it played out quite much like the game in most respects. I sort of got thrown off by this as I was expecting a follow up to the previous novels but it appears the series plays out from the various games and are not a full on universe of books. I only just found this out but still glad I read the series overall. The books themselves are all average at best, but worth the read if you were a fan of the series.
 
+9. <b>Star Wars: Thrawn Ascendancy</b> by Timothy Zahn (5/2/23) - The next book in this trilogy I believe. Second book continues with Thrawns impressive streak at being a genius in the military but being completly inept in the political realm. All around this was another great read and is from probably my favorite of all of the Star Wars authors. Not to mention, this is easily my favorite character in all the series as well. There is not much to say here, as its standard Star Wars with some intrigue going on with the character buildings as we are largely living inside of the Unknown Regions of the Chiss Acendency.
 
 ### Currently Reading
 
 1.	This is Not Propaganda: Adventures in the War Against Reality by Peter Pomerantsev
-2.	Star Wars: Thrawn Ascendancy by Timothy Zahn
+2.	The Way of Kings by Brandon Sanderson
 
-### Current Book Completed Count as of 4/22/23
+### Current Book Completed Count as of 5/3/23
 
 Non-fiction - 6\
-Fiction - 8
+Fiction - 9
 
 
 
