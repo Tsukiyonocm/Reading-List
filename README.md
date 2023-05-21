@@ -42,12 +42,12 @@
 
 ### Currently Reading
 
-1.	This is Not Propaganda: Adventures in the War Against Reality by Peter Pomerantsev
+1.	The March of Folly by Barbara Tuchman
 2.	The Way of Kings by Brandon Sanderson
 
-### Current Book Completed Count as of 5/3/23
+### Current Book Completed Count as of 5/20/23
 
-Non-fiction - 6\
+Non-fiction - 7\
 Fiction - 9
 
 
