@@ -40,15 +40,17 @@
 
 9. <b>Star Wars: Thrawn Ascendancy</b> by Timothy Zahn (5/2/23) - The next book in this trilogy I believe. Second book continues with Thrawns impressive streak at being a genius in the military but being completly inept in the political realm. All around this was another great read and is from probably my favorite of all of the Star Wars authors. Not to mention, this is easily my favorite character in all the series as well. There is not much to say here, as its standard Star Wars with some intrigue going on with the character buildings as we are largely living inside of the Unknown Regions of the Chiss Acendency.
 
+10. <b>The Way of Kings</b> by Brandon Sanderson (7/16/23) - This one was a nice and very long read as can be seen since my last completion. This took me quite a bit to get into, the first section of the book was a lot of character building and world building and it was slow to get started. Around the middle though I was hooked and especially towards the end I didnt want to stop reading. I much look forward to continuing the story in the next book even if they take me two months to complete again. The basis of the story is a rising evil that is coming and all the events that is building up to it. Kaladin and Shallan are probably the two most interesting of the characters, but Dalinar and everyone else is still quite good once they get rolling.
+
 ### Currently Reading
 
 1.	The March of Folly by Barbara Tuchman
-2.	The Way of Kings by Brandon Sanderson
+2.	Wayward Pines by Blake Crouch
 
-### Current Book Completed Count as of 5/20/23
+### Current Book Completed Count as of 7/18/23
 
 Non-fiction - 7\
-Fiction - 9
+Fiction - 10
 
 
 
