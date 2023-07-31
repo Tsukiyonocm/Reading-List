@@ -42,10 +42,12 @@
 
 10. <b>The Way of Kings</b> by Brandon Sanderson (7/16/23) - This one was a nice and very long read as can be seen since my last completion. This took me quite a bit to get into, the first section of the book was a lot of character building and world building and it was slow to get started. Around the middle though I was hooked and especially towards the end I didnt want to stop reading. I much look forward to continuing the story in the next book even if they take me two months to complete again. The basis of the story is a rising evil that is coming and all the events that is building up to it. Kaladin and Shallan are probably the two most interesting of the characters, but Dalinar and everyone else is still quite good once they get rolling.
 
+11. <b>Wayward Pines - Pines</b> by Blake Crouch (7/29/23) - As has come to be expected, this was a fantastic read and went to places I was not expecting. Blake Crouch is easily becoming one of my favorite authors. This story basically a guy waking up in the woods without his memory and finding himself in a town. From there the memories come back and everything goes bizarre. Overall a fantastic read which can be attested in that it took me less than two weeks to read it.
+
 ### Currently Reading
 
 1.	The March of Folly by Barbara Tuchman
-2.	Wayward Pines by Blake Crouch
+2.	Star Wars: Queens Peril by E. K. Johnston
 
 ### Current Book Completed Count as of 7/18/23
 
