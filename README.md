@@ -49,10 +49,10 @@
 1.	The March of Folly by Barbara Tuchman
 2.	Star Wars: Queens Peril by E. K. Johnston
 
-### Current Book Completed Count as of 7/18/23
+### Current Book Completed Count as of 7/31/23
 
 Non-fiction - 7\
-Fiction - 10
+Fiction - 11
 
 
 
