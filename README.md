@@ -21,6 +21,8 @@
 
 7. <b>This is not Propaganda: Adventures in the War Against Reality</b> by Peter Pomerantsev (5/19/23) - This was another book where it was not exactly what I was expecting, but was another happy read. Well happy in the sense that I found it interesting anyway of a read. Overall the book focused a lot on the Russian troll farms where they are hired specifically to push an agenda throughout the website. If the Kremlin wanted to push for a particular policy or to push for a specific outcome of confusion or discord, they would flood the internet and various news sites comment boards with comments in order to push a divide. He talked a bit also about the good the internet has had in regards to allowing people to being able to find like minded individuals to create a movement for change. Then like in black mirror talks about how that same thing has been used to put despots in power, murder countless innocent and overall just pushing people to act as a mob. Overall a scary look into the future, but a hopeful one somewhat to hope that this will pass.
 
+8. <b>The March of Folly</b> by Barbara Tuchman (8-8-23) - This took me way to long to read, while the content was a bit interesting, I just couldnt get into it much. The basics of it is that the blunders of history, from the popes the popes that lead to the fall of Rome up to Vietnam have all been largely created by people who should have known better and still proceeded anyway. In many cases, the leaders of the US in Vietnam and the leaders of Britain during the revolutionary war knew where their choices were leading their respective countries. In each time, those in power for one reason or another chose to stay the course and kept doing the wrong things for all the wrong reasons once they committed themselves. Overall, interesting book, just not what I was hoping to get out of it I guess.
+
 ### Fiction
 1. <b>Star Wars: The High Republic - The Rising Storm</b> by Cavan Scott (12-14-22) - This has been a surprisingly good story arc so far I think. The series seems to do some things different then other book series in the sense that a large portion of the book seems to take place over a couple of hours of time. This is in contrast where many other stories just seems to pass on for months at a time. In this case the main part of the story follows another of the "Great Works" to bring unity to the republic, in this case its a great fair. Naturally this doesn't go to plan and things get interrupted by the Nihil. That with the more human feeling Jedi in the story arc as a whole has me interested in following up. I might even have to pay full price for the rest of the stories.
 
@@ -44,15 +46,19 @@
 
 11. <b>Wayward Pines - Pines</b> by Blake Crouch (7/29/23) - As has come to be expected, this was a fantastic read and went to places I was not expecting. Blake Crouch is easily becoming one of my favorite authors. This story basically a guy waking up in the woods without his memory and finding himself in a town. From there the memories come back and everything goes bizarre. Overall a fantastic read which can be attested in that it took me less than two weeks to read it.
 
+12. <b>Star Wars: Queens Peril</b> by E. K. Johnston (8-7-23) - This was actually a bit interesting, a few of the chapters was a bit too much detail for me, but overall it fit the narrative I just didn't think it added anything to me. The story takes place for the weeks and months from the time Amidala was elected queen until the end of the events of The Phantom Menace. It did not go to much in-depth into what was already seen in the movies, but it did dig a bit more into the thoughts of the people involved and was an interesting take overall. Not likely something I would read again, but also don't regret reading it.
+
+13. <b>Goosebumps: Hall of Horrors - Why I Quit Zombie School</b> by R. L. Stein (8-7-23) - I had never read this before so at least this time it was a new story. Simple story overall with a standard twist from Stein at the end, plus the every chapter ending in a cliff hanger. Pretty decent overall and I still remember why I liked these books as a kid.
+
 ### Currently Reading
 
-1.	The March of Folly by Barbara Tuchman
-2.	Star Wars: Queens Peril by E. K. Johnston
+1.	Brain Rules by John Medina
+2.	Star Wars: The High Republic A Test of Courage
 
-### Current Book Completed Count as of 7/31/23
+### Current Book Completed Count as of 8/10/23
 
-Non-fiction - 7\
-Fiction - 11
+Non-fiction - 8\
+Fiction - 13
 
 
 
