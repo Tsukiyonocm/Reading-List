@@ -50,15 +50,19 @@
 
 13. <b>Goosebumps: Hall of Horrors - Why I Quit Zombie School</b> by R. L. Stein (8-7-23) - I had never read this before so at least this time it was a new story. Simple story overall with a standard twist from Stein at the end, plus the every chapter ending in a cliff hanger. Pretty decent overall and I still remember why I liked these books as a kid.
 
+14. <b>Star Wars: The High Republic - A Test of Courage</b> by Justina Ireland (8-20-23) - This was actually a young adult book I had bought a long time ago and finally decided to sit down and start reading this series in the proper reading order. The book introduces a few new Jedi to the mix, namely Vernestra and Imri. The basics of the story starts with them leaving on a space ship to head to the Starlight Beacon (which I read in the last book I had read out of order). Calamity happens and the jedi a few other survivors and droid are forced to survive and fight to escape the Nihil. Overall was a decent read, and even though it was for a young age group it did not feel like a little kids book which was nice.
+
+15. <b>Star Wars: The High Republic - Out of the Shadows</b> by Justina Ireland (9-4-23) - This was a convenient next book as it utilized the characters from the previous story I had just finished. That said, this was a normal novel in the series and not a shorter story of kids. The story takes place with Vernestra and Imri being syphoned from the frontlines and being sent to do what amounts to a stand around and see roll on a survey vessel of an area. Mixing in a few more characters with Jordanna and Syl, rounding out the none jedi and leading the story on its course. Overall was quite good and enjoyable. From this point on I am also going to try to read this series in order, even if that means I got to spend full price for the books!
+
 ### Currently Reading
 
 1.	Brain Rules by John Medina
-2.	Star Wars: The High Republic A Test of Courage
+2.	The Hollow Ones by Guillermo del Toro and Chuck Hogan
 
-### Current Book Completed Count as of 8/10/23
+### Current Book Completed Count as of 9/5/23
 
 Non-fiction - 8\
-Fiction - 13
+Fiction - 15
 
 
 
