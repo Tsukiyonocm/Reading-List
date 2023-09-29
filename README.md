@@ -23,6 +23,8 @@
 
 8. <b>The March of Folly</b> by Barbara Tuchman (8-8-23) - This took me way to long to read, while the content was a bit interesting, I just couldnt get into it much. The basics of it is that the blunders of history, from the popes the popes that lead to the fall of Rome up to Vietnam have all been largely created by people who should have known better and still proceeded anyway. In many cases, the leaders of the US in Vietnam and the leaders of Britain during the revolutionary war knew where their choices were leading their respective countries. In each time, those in power for one reason or another chose to stay the course and kept doing the wrong things for all the wrong reasons once they committed themselves. Overall, interesting book, just not what I was hoping to get out of it I guess.
 
+9. <b>How We Will Live on Mars</b> by Stephen Petranek (9-27-23) - I have been wanting to read this since I watched the Mars mockumentary several years ago. The show largely follows in a documentary format what would happen with the first colonist on mars. The perilous journey they would take to get there, setting up the first habitats, hurdles to overcome to grow food and maintain oxygen and much more. Overall this was a nice introductory which gives you an idea of what it would be like to head to Mars. Overall this skims the surface of a lot of details, and the book has aged a bit since some of the information they story talks about is now longer relevant. All around though this was an entertaining read.
+
 ### Fiction
 1. <b>Star Wars: The High Republic - The Rising Storm</b> by Cavan Scott (12-14-22) - This has been a surprisingly good story arc so far I think. The series seems to do some things different then other book series in the sense that a large portion of the book seems to take place over a couple of hours of time. This is in contrast where many other stories just seems to pass on for months at a time. In this case the main part of the story follows another of the "Great Works" to bring unity to the republic, in this case its a great fair. Naturally this doesn't go to plan and things get interrupted by the Nihil. That with the more human feeling Jedi in the story arc as a whole has me interested in following up. I might even have to pay full price for the rest of the stories.
 
@@ -54,15 +56,17 @@
 
 15. <b>Star Wars: The High Republic - Out of the Shadows</b> by Justina Ireland (9-4-23) - This was a convenient next book as it utilized the characters from the previous story I had just finished. That said, this was a normal novel in the series and not a shorter story of kids. The story takes place with Vernestra and Imri being syphoned from the frontlines and being sent to do what amounts to a stand around and see roll on a survey vessel of an area. Mixing in a few more characters with Jordanna and Syl, rounding out the none jedi and leading the story on its course. Overall was quite good and enjoyable. From this point on I am also going to try to read this series in order, even if that means I got to spend full price for the books!
 
+16. <b>The Hollow Ones</b> by Chuck Hogan and Guillermo Del Toro (9-27-23) - I really wasnt expecting much from this book. I largely read it because I enjoyed The Strain which was written by the same authors, plus I like Del Toros works in general. This is a largely supernatural story like the other which is a slow burn. Tells the story from a couple of perspectives over history and the primary story is from perspective of Odessa Lockwood. She is an FBI agent who gets wrapped up in all this after having to shoot her partner at a crime scene. The Blackwood character reminds me a lot of Van Helsing a bit, but overall, this was a pretty interesting story and something I will for sure watch for the sequel to come out.
+
 ### Currently Reading
 
 1.	Brain Rules by John Medina
-2.	The Hollow Ones by Guillermo del Toro and Chuck Hogan
+2.	Exile by R.A. Salvatore
 
-### Current Book Completed Count as of 9/5/23
+### Current Book Completed Count as of 9/28/23
 
-Non-fiction - 8\
-Fiction - 15
+Non-fiction - 9\
+Fiction - 16
 
 
 
