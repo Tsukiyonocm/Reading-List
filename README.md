@@ -27,6 +27,8 @@
 
 10. <b>Brain Rules</b> by John Medina (10-5-23) - This was a fascinating read. While there was so much here to really delve into, one of the most interesting things it talked about was how the brain even has an adult as parts of it which is seemingly as young and maleable as when a baby. What I mean by this is that they can grow new neural connections and largely learn new things. So you can basically teach an old dog new tricks. The book went in depth on things that can happen when various areas of the brain are damaged, how information is not stored in a seemingly way that makes sense and that there are certain parts of the brain that will light up when you see the letter A, and different areas will light up when you see the letter Z. All around quite fascinating.
 
+11. <b>Auschwitz</b> by Miklos Nyiszali (10-16-23) - As interesting as a read as this was, it was also quite heart wrenching at times listening to the author talk about his experiences. This guy during the last year of the war a prisoner sent to the camp but had worked as a doctor on the camp largely working with corpses and performing autopsies on them for Dr. Mengele. The first instance is after a bit of satisfactory work he was granted the chance to check the actual part of the camp where the women were at to find his wife and daughter. After searching around through various barracks he was able to find them. Only for a few months later to find out that their barracks is about to be liquidated and he tries to get them out of the camp to a work camp on the next train to give them a chance at living. The other part that comes to mind is the Sonderkommando (prisoner workers) who found a 15 year old girl alive underneath a pile of corpses after being put thru the gas chambers. He was able to revive her in this unprecedented situation, only after pleading for her life to have her then shot in the back of the head and killed anyway a few hours later. 
+
 ### Fiction
 1. <b>Star Wars: The High Republic - The Rising Storm</b> by Cavan Scott (12-14-22) - This has been a surprisingly good story arc so far I think. The series seems to do some things different then other book series in the sense that a large portion of the book seems to take place over a couple of hours of time. This is in contrast where many other stories just seems to pass on for months at a time. In this case the main part of the story follows another of the "Great Works" to bring unity to the republic, in this case its a great fair. Naturally this doesn't go to plan and things get interrupted by the Nihil. That with the more human feeling Jedi in the story arc as a whole has me interested in following up. I might even have to pay full price for the rest of the stories.
 
@@ -62,12 +64,12 @@
 
 ### Currently Reading
 
-1.	Auschwitz by Dr. Miklos Nyiszli
+1.	Insight Meditation: The Practice of Freedom by Joseph Goldstein
 2.	Exile by R.A. Salvatore
 
-### Current Book Completed Count as of 10/8/23
+### Current Book Completed Count as of 10/16/23
 
-Non-fiction - 10\
+Non-fiction - 11\
 Fiction - 16
 
 
