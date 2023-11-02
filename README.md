@@ -62,15 +62,17 @@
 
 16. <b>The Hollow Ones</b> by Chuck Hogan and Guillermo Del Toro (9-27-23) - I really wasnt expecting much from this book. I largely read it because I enjoyed The Strain which was written by the same authors, plus I like Del Toros works in general. This is a largely supernatural story like the other which is a slow burn. Tells the story from a couple of perspectives over history and the primary story is from perspective of Odessa Lockwood. She is an FBI agent who gets wrapped up in all this after having to shoot her partner at a crime scene. The Blackwood character reminds me a lot of Van Helsing a bit, but overall, this was a pretty interesting story and something I will for sure watch for the sequel to come out.
 
+17. <b>Exile</b> by R. A. Salvatore (10-28-23) - Book 2 of the dark elf series and one of the best series of fantasy books I have read. Ive enjoyed this series since I first read it all the way back in high school. This continues the story Drizzt and his adventures through the Underdark. This is actually the prequel series to his introduction to the realm and the characters that have become a mainstay. Overall not much to say about this, love the book and love the series. Do yourself a favor and read it!
+
 ### Currently Reading
 
 1.	Insight Meditation: The Practice of Freedom by Joseph Goldstein
-2.	Exile by R.A. Salvatore
+2.	The Fallen Star by Claudia Gray
 
-### Current Book Completed Count as of 10/16/23
+### Current Book Completed Count as of 11/2/23
 
 Non-fiction - 11\
-Fiction - 16
+Fiction - 17
 
 
 
