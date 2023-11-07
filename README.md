@@ -64,15 +64,17 @@
 
 17. <b>Exile</b> by R. A. Salvatore (10-28-23) - Book 2 of the dark elf series and one of the best series of fantasy books I have read. Ive enjoyed this series since I first read it all the way back in high school. This continues the story Drizzt and his adventures through the Underdark. This is actually the prequel series to his introduction to the realm and the characters that have become a mainstay. Overall not much to say about this, love the book and love the series. Do yourself a favor and read it!
 
+18. <b>Star Wars: The High Republic - The Fallen Star</> by Claudia Gray (11-6-23) - This was the next book in The High Republic series of Star Wars books. Was another solid entry as well into the series. This has us facing off still against the Nihil threat as well as the various other oddities that come aboard the Starlight Beacon. All around this was a fairly self contained story which actually does not showcase a lot of different locations having been almost completly isolated to Starlight Beacon. All around its a good story which sets up some character deaths, some characters struggles and also showing that the threat is real. All around, enjoying this series of books so far.
+
 ### Currently Reading
 
 1.	Insight Meditation: The Practice of Freedom by Joseph Goldstein
-2.	The Fallen Star by Claudia Gray
+2.	Star Wars: Tempest Runner by Cavan ScotT
 
-### Current Book Completed Count as of 11/2/23
+### Current Book Completed Count as of 11/7/23
 
 Non-fiction - 11\
-Fiction - 17
+Fiction - 18
 
 
 
