@@ -34,7 +34,7 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 2. <b>Relentless</b> by R.A. Salvatore (1-25-21) – A nice conclusion to the overall story arc. There is bit of things that I did not recognize being referenced since I have not read several books in between, but overall, I still enjoyed it. I look forward to the next story that will likely be written at some point.
 
-3. <b>Star Wars: Thrawn Ascendancy</b> by Timothy Zahn (2-8-21) – Another great entry from this author. I enjoy the back story to Thrawn and the fleshing out of the characters past. While this is the first book in the series, I look forward to reading the next two books of this trilogy. This story has Thrawn using his abilities to weed out and outwit a new enemy. All around a top-notch story from probably my favorite author.
+3. <b>Star Wars: Thrawn Ascendancy - Chaos Rising</b> by Timothy Zahn (2-8-21) – Another great entry from this author. I enjoy the back story to Thrawn and the fleshing out of the characters past. While this is the first book in the series, I look forward to reading the next two books of this trilogy. This story has Thrawn using his abilities to weed out and outwit a new enemy. All around a top-notch story from probably my favorite author.
 
 4. <b>Bedtime Stories</b> by Russel Smeaton (2-15-21) – All around a fun and engrossing read. The first two stories Monday Morning and Snot had me going from chuckling to cringing all over the course of several pages. Can for sure see the Lovecraftian influences here, especially in couple of the last stories. Also, some of the twist in the stories I didn’t even see until the last page of the stories. All around a fun and quick read.
 
