@@ -3,12 +3,12 @@
 With the fiction books I might try to do things slightly different, I tend to read some series, which I will try to post them in chronological order, if possible, and the stand alones I will keep in alphabetical order... shall see how this goes. --
 
 ## Non-fiction
-<b>A Crack in Creation: Gene Editing and the Unthinkable Power to Control Evolution</b> by Jennifer Doudna (1-15-20)
-<b>Archaeology From Space</b> by Sarah Parcak (12-21-19)
-<b>Astrophysics for People in a Hurry</b> by Neil DeGrasse Tyson (1-26-20)
-<b>Auschwitz</b> by Miklos Nyiszali (10-16-23)
-<b>Bad Blood</b> by John Carreyou (8-12-20)
-<b>Brain Rules</b> by John Medina (10-5-23)
+<b>A Crack in Creation: Gene Editing and the Unthinkable Power to Control Evolution</b> by Jennifer Doudna (1-15-20)/
+<b>Archaeology From Space</b> by Sarah Parcak (12-21-19)/
+<b>Astrophysics for People in a Hurry</b> by Neil DeGrasse Tyson (1-26-20)/
+<b>Auschwitz</b> by Miklos Nyiszali (10-16-23)/
+<b>Bad Blood</b> by John Carreyou (8-12-20)/
+<b>Brain Rules</b> by John Medina (10-5-23)/
 <b>Chasing Stardust</b> by Natalie Starkey (4-30-22)
 <b>Deadliest Enemy</b> by Michael T. Osterholm (5-7-20)
 <b>Doctors from Hell</b> by Vivian Spitz (11-29-21)
