@@ -126,7 +126,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: The High Republic - The Rising Storm</b> by Cavan Scott (12-14-22)\
 <b>Star Wars: The High Republic - A Test of Courage</b> by Justina Ireland (8-20-23)\
 <b>Star Wars: The High Republic: Light of the Jedi</b> by Charles Soule (10-24-21)\
-<b>Star Wars the High Republic: Into the Dark</b> by Claudia Gray (5-24-23)
+<b>Star Wars the High Republic: Into the Dark</b> by Claudia Gray (5-24-21)
 
 ### Star Wars Old Canon
 <b>Star Wars: Reven</b> By Drew Karpyshyn (2-7-20)
