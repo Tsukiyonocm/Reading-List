@@ -3,33 +3,33 @@
 With the fiction books I might try to do things slightly different, I tend to read some series, which I will try to post them in chronological order, if possible, and the stand alones I will keep in alphabetical order... shall see how this goes. --
 
 ## Non-fiction
-<b>A Crack in Creation: Gene Editing and the Unthinkable Power to Control Evolution</b> by Jennifer Doudna (1-15-20)/
-<b>Archaeology From Space</b> by Sarah Parcak (12-21-19)/
-<b>Astrophysics for People in a Hurry</b> by Neil DeGrasse Tyson (1-26-20)/
-<b>Auschwitz</b> by Miklos Nyiszali (10-16-23)/
-<b>Bad Blood</b> by John Carreyou (8-12-20)/
-<b>Brain Rules</b> by John Medina (10-5-23)/
-<b>Chasing Stardust</b> by Natalie Starkey (4-30-22)
-<b>Deadliest Enemy</b> by Michael T. Osterholm (5-7-20)
-<b>Doctors from Hell</b> by Vivian Spitz (11-29-21)
-<b>End Times: A Brief Guide to the End of the World</b> by Bryan Walsh (9-12-20)
-<b>Fortitude: American Resilience in the Era of Outrage</b> by Dan Crenshaw (8-06-21)
-<b>The God Delusion</b> by Richard Dawkins (2-02-21)
-<b>The Great Influenza</b> by John M. Barry (6-29-20)
-<b>Hivemind</b> by Sarah Rose Cavanagh (4-19-21)
-<b>The Hot Zone</b> by Richard Preston (10-17-22)
-<b>How to Raise an Adult</b> by Julie Lythcott-Haims (8-16-22)
-<b>How We Will Live on Mars</b> by Stephen Petranek (9-27-23)
-<b>Humankind</b> by Rutger Bregman (2-2-23)
-<b>Insight Meditation: The Practice of Freedom</b> by Joseph Goldstein (11-20-23)
-<b>Japans Infamous Unit 731</b> by Hal Gold (12-16-22)
-<b>The Killer Across the Table</b> by John Douglas and Mark Olshaker (2/19/21)
-<b>Klaus Barbie: The Butcher of Lyons</b> by Tom Bowen (5-17-21)
-<b>Lifespan</b> by David Sinclair (6-20-22)
-<b>The March of Folly</b> by Barbara Tuchman (8-8-23)
-<b>Mindset</b> by Carol S. Dweck (9-21-22)
-<b>The Minimalist Home</b> by Joshua Becker (3/23/23)
-<b>The More of Less</b> by Joshua Becker (3-13-21)
+<b>A Crack in Creation: Gene Editing and the Unthinkable Power to Control Evolution</b> by Jennifer Doudna (1-15-20)\
+<b>Archaeology From Space</b> by Sarah Parcak (12-21-19)\
+<b>Astrophysics for People in a Hurry</b> by Neil DeGrasse Tyson (1-26-20)\
+<b>Auschwitz</b> by Miklos Nyiszali (10-16-23)\
+<b>Bad Blood</b> by John Carreyou (8-12-20)\
+<b>Brain Rules</b> by John Medina (10-5-23)\
+<b>Chasing Stardust</b> by Natalie Starkey (4-30-22)\
+<b>Deadliest Enemy</b> by Michael T. Osterholm (5-7-20)\
+<b>Doctors from Hell</b> by Vivian Spitz (11-29-21)\
+<b>End Times: A Brief Guide to the End of the World</b> by Bryan Walsh (9-12-20)\
+<b>Fortitude: American Resilience in the Era of Outrage</b> by Dan Crenshaw (8-06-21)\
+<b>The God Delusion</b> by Richard Dawkins (2-02-21)\
+<b>The Great Influenza</b> by John M. Barry (6-29-20)\
+<b>Hivemind</b> by Sarah Rose Cavanagh (4-19-21)\
+<b>The Hot Zone</b> by Richard Preston (10-17-22)\
+<b>How to Raise an Adult</b> by Julie Lythcott-Haims (8-16-22)\
+<b>How We Will Live on Mars</b> by Stephen Petranek (9-27-23)\
+<b>Humankind</b> by Rutger Bregman (2-2-23)\
+<b>Insight Meditation: The Practice of Freedom</b> by Joseph Goldstein (11-20-23)\
+<b>Japans Infamous Unit 731</b> by Hal Gold (12-16-22)\
+<b>The Killer Across the Table</b> by John Douglas and Mark Olshaker (2/19/21)\
+<b>Klaus Barbie: The Butcher of Lyons</b> by Tom Bowen (5-17-21)\
+<b>Lifespan</b> by David Sinclair (6-20-22)\
+<b>The March of Folly</b> by Barbara Tuchman (8-8-23)\
+<b>Mindset</b> by Carol S. Dweck (9-21-22)\
+<b>The Minimalist Home</b> by Joshua Becker (3/23/23)\
+<b>The More of Less</b> by Joshua Becker (3-13-21)\
 <b>The Paradox of Choice: Why More is Less</b> by Barry Schwartz (3-5-20)
 <b>The Planets</b> by Andrew Cohen and Professor Bryan Cox (1-21-23)
 <b>Punished by Rewards</b> by Alfie Kohn (11-29-19)
