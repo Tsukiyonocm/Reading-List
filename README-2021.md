@@ -30,7 +30,7 @@ There is also a section of this chapter called “The Moral Zeitgeist”. In it,
 
 ### Fiction
 
-1. <b>Leia: Princess of Alderaan</b> by Claudia Gray (12-24-20) – Overall the story was a bit interesting. Filling in some of the gaps between Leia joining into the rebellions cause, as well as filling in some character details from The Last Jedi. Claudia Gray has written some of my favorite stories and while this one was not perfect; it was interesting enough. I liked the characters and while we are talking about royal people, they feel real enough throughout the story. All around a good read, though I doubt I would re-read it in the future.
+1. <b>Star Wars: Leia: Princess of Alderaan</b> by Claudia Gray (12-24-20) – Overall the story was a bit interesting. Filling in some of the gaps between Leia joining into the rebellions cause, as well as filling in some character details from The Last Jedi. Claudia Gray has written some of my favorite stories and while this one was not perfect; it was interesting enough. I liked the characters and while we are talking about royal people, they feel real enough throughout the story. All around a good read, though I doubt I would re-read it in the future.
 
 2. <b>Relentless</b> by R.A. Salvatore (1-25-21) – A nice conclusion to the overall story arc. There is bit of things that I did not recognize being referenced since I have not read several books in between, but overall, I still enjoyed it. I look forward to the next story that will likely be written at some point.
 

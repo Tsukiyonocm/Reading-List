@@ -109,10 +109,10 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: The Force Awakens</b> by Alan Dean Foster (5-19-22)\
 <b>Star Wars: The Force Collector</b> by Kevin Schinick (8-19-20)\
 <b>Star Wars: The Legends of Luke Skywalker</b> by Ken Liu (6-26-20)\
-<b>The Mandalorian</b> by Joe Schreiber (4-9-22)\
+<b>Star Wars: The Mandalorian</b> by Joe Schreiber (4-9-22)\
 <b>Star Wars: The Empire Strikes Back: From a Certain Point of View</b> by Assorted Authors (9-4-22)\
 <b>Star Wars: Heir to the Jedi</b> by Kevin Hearne (5-20-20)\
-<b>Leia: Princess of Alderaan</b> by Claudia Gray (12-24-20)\
+<b>Star Wars: Leia: Princess of Alderaan</b> by Claudia Gray (12-24-20)\
 <b>Star Wars: Thrawn Ascendancy - Greater Good</b> by Timothy Zahn (5/2/23)\
 <b>Star Wars: Thrawn Ascendancy - Chaos Rising</b> by Timothy Zahn (2-8-21)\
 <b>Star Wars: Thrawn Treason</b> by Timothy Zahn (9-21-20)\
