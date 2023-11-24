@@ -1,9 +1,10 @@
-# 2023 Books
+# 2024 Books
 
 ## Books read starting December 1st 2019
 [Archive 2020](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2020.md)\
 [Archive 2021](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2021.md)\
-[Archive 2022](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2022.md)
+[Archive 2022](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2022.md)\
+[Archive 2023](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2023.md)
 
 ### Non-Fiction
 1. <b>Japans Infamous Unit 731</b> by Hal Gold (12-16-22) - This was more inline with what I was hoping the book on the Nazi doctors I read last year was. This went more into what was done, more about the particular experiments and had a lot more first hand accounts for people who partook or witnessed some of the experiments. I still believe that the Nazi doctors appear to be more cruel, but frankly thats because their work just largely seemed to have no pertinence to actual science and the japanese work at least was science, albeit just very brutal and unethical to the extreme. Overall, WW2 seems like a very dark period in regards to medicine and human ethics.
