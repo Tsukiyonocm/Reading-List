@@ -61,7 +61,7 @@
 
 15. <b>The Haunting of Hill House</b> by Shirley Jackson (10-9-2020) – Actually an exceptionally good story. I went in knowing this was different from the show and did not have high hopes for it. I find the older the stories I often find the prose hard to get into. Had this issue with “Turning of the Screw” and “Orestes”. While the stories seemed interesting, the writing could not hold me. This was great though, kept a good bit of tension for a book also. All around a good read.
 
-16. <b>Persepolis Rising</b> by James S. A. Corey (11-26-20) – Another great book in the series. All around cant comment on much that happens, but a great story.  Love the characters and learning about each one new in each story.
+16. <b>Persepolis Rising (The Expanse Book 7)</b> by James S. A. Corey (11-26-20) – Another great book in the series. All around cant comment on much that happens, but a great story.  Love the characters and learning about each one new in each story.
 
 ### Just Cant Get Into Right Now
 
