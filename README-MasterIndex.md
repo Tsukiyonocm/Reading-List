@@ -47,7 +47,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The War On Science</b> by Shawn Otto (4-1-22)\
 <b>What Unites Us</b> by Dan Rather (11-20-22)\
 <b>When The Earth Had Two Moons</b> by Erik Asphaug (10-15-20)\
-<b>Yes to Life, In Spite of Everything</b> by Viktor Frankl (10-29-22)\
+<b>Yes to Life, In Spite of Everything</b> by Viktor Frankl (10-29-22)
 
 
 
@@ -86,14 +86,14 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Traitor Baru Cormorant</b> by Seth Dickinson (3/24/23)\
 <b>The Way of Kings</b> by Brandon Sanderson (7/16/23)\
 <b>Wayward Pines - Pines</b> by Blake Crouch (7/29/23)\
-<b>The Witcher: Baptism of Fire</b> by Andrzej Sapkowski (2/13/23)\
+<b>The Witcher: Baptism of Fire</b> by Andrzej Sapkowski (2/13/23)
 
 ### The Legend of Drizzt
 <b>Relentless</b> by R.A. Salvatore (1-25-21)\
-<b>Boundless</b> by R. A. Salvatore (4-10-20)\
+<b>Boundless</b> by R. A. Salvatore (4-10-20)
 
 <b>Exile</b> by R. A. Salvatore (10-28-23)\
-<b>Homeland</b> by R. A. Salvatore (6-13-22)\
+<b>Homeland</b> by R. A. Salvatore (6-13-22)
 
 ### The Expanse Series
 <b>Cibola Burn (The Expanse Book 4)</b> by James S. A. Corey (1-16-20)\
@@ -102,7 +102,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Persepolis Rising (The Expanse Book 7)</b> by James S. A. Corey (11-26-20)\
 <b>Tiamat’s Wrath (The Expanse Book 8)</b> by James S. A. Corey (8-17-21)\
 <b>The Expanse: Leviathan Falls</b> by James S. A. Corey (8-6-22)\
-<b>The Expanse: Memories Legion</b> by James S. A. Corey (1/9/23)\
+<b>The Expanse: Memories Legion</b> by James S. A. Corey (1/9/23)
 
 ### Star Wars New Canon - and sub-series within
 <b>Star Wars: The Last Jedi</b> by Jason Fry (6-1-22)\
@@ -118,7 +118,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: Thrawn Treason</b> by Timothy Zahn (9-21-20)\
 <b>Star Wars: Rebel Rising</b> by Beth Revis (12-1-19)\
 <b>Star Wars: Queens Peril</b> by E. K. Johnston (8-7-23)\
-<b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22)\
+<b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22)
 
 <b>Star Wars: The High Republic - The Fallen Star</> by Claudia Gray (11-6-23)\
 <b>Star Wars: Tempest Runner</b> by Cavan Scott (11-23-23)\
@@ -126,10 +126,10 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: The High Republic - The Rising Storm</b> by Cavan Scott (12-14-22)\
 <b>Star Wars: The High Republic - A Test of Courage</b> by Justina Ireland (8-20-23)\
 <b>Star Wars: The High Republic: Light of the Jedi</b> by Charles Soule (10-24-21)\
-<b>Star Wars the High Republic: Into the Dark</b> by Claudia Gray (5-24-23)\
+<b>Star Wars the High Republic: Into the Dark</b> by Claudia Gray (5-24-23)
 
 ### Star Wars Old Canon
-<b>Star Wars: Reven</b> By Drew Karpyshyn (2-7-20)\
+<b>Star Wars: Reven</b> By Drew Karpyshyn (2-7-20)
 
 ### Resident Evil
 <b>Resident Evil: Caliban Cove</b> by S.D. Perry (2-26-21)\
@@ -137,4 +137,4 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Resident Evil: Underworld</b> by S. D. Perry (3-25-22)\
 <b>Resident Evil: Nemesis</b> by S. D. Perry (6-22-22)\
 <b>Resident Evil: Code Veronica</b> by S. D. Perry (11-09-22)\
-<b>Resident Evil: Zero Hour</b> by S. D. Perry (4/6/23)\
+<b>Resident Evil: Zero Hour</b> by S. D. Perry (4/6/23)
