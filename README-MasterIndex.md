@@ -1,6 +1,7 @@
 # All Books Read
--- So this is a master list of the books I have read. This is really just for a quick reference as there have been times I have been looking at books that got new editions and I almost bought them to read them, just to find out I read an earlier edition. These are not in date order, this are in alphabetical order... or at least as close to it as I care to get to anyway.
-With the fiction books I might try to do things slightly different, I tend to read some series, which I will try to post them in chronological order, if possible, and the stand alones I will keep in alphabetical order... shall see how this goes. --
+
+So this is a master list of the books I have read starting December 1st 2019. This is really just for a quick reference as there have been times I have been looking at books that got new editions and I almost bought them to read them, just to find out I read an earlier edition. These are not in date order, this are in alphabetical order... or at least as close to it as I care to get to anyway.
+With the fiction books I might try to do things slightly different, I tend to read some series, which I will try to post them in chronological order, if possible, and the stand alones I will keep in alphabetical order... shall see how this goes.
 
 ## Non-fiction
 <b>A Crack in Creation: Gene Editing and the Unthinkable Power to Control Evolution</b> by Jennifer Doudna (1-15-20)\
