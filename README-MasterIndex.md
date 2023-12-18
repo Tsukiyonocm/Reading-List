@@ -60,6 +60,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Canticle</b> by R. A. Salvatore (11-22-22)\
 <b>Come Closer</b> by Sara Grant (4-12-22)\
 <b>Dark Matter</b> by Blake Crouch (4-28-22)\
+<b>Diabolique</b> by John Paul Fitch (12-16-23)\
 <b>Do Robots Dream of Electric Sheep</b> by Philip K. Dick (6-9-20)\
 <b>Elder Race</b> by Adrian Tchaikovsky (4-17-22)\
 <b>Fearful Symmetries</b> by Various Authors (10-05-21)\

@@ -10,18 +10,18 @@
 
 
 ### Fiction
-
+1. <b>Diabolique</b> by John Paul Fitch (12-16-23) - Ultimately I was not overly impressed with this book. This is basically a book of horror short stories with various themes. Most of the stories had some intriguing parts but overall fell flat to me. Some of the monsters seemed interesting in themselves, but as mentioned the rest of the story just fell apart for me personally cause I found it hard to follow the primary storyteller. Overall, dont regret reading it, but its not something I could recommend and would likely not read again.
 
 
 ### Currently Reading
 
 1.	Digital Minimalism by Cal Newport
-2.	Diabolique - John Paul Fitch
+2.	The Memory Police by Yoko Ogawa
 
-### Current Book Completed Count as of 12/1/23
+### Current Book Completed Count as of 12/17/23
 
 Non-fiction - 0\
-Fiction - 0
+Fiction - 1
 
 
 
