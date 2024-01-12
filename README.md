@@ -15,12 +15,12 @@
 
 ### Currently Reading
 
-1.	Digital Minimalism by Cal Newport
+1.	AI 2041 by Kai Fu Lee
 2.	The Memory Police by Yoko Ogawa
 
-### Current Book Completed Count as of 12/17/23
+### Current Book Completed Count as of 1/12/24
 
-Non-fiction - 0\
+Non-fiction - 1\
 Fiction - 1
 
 
