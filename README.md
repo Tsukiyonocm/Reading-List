@@ -12,16 +12,18 @@
 ### Fiction
 1. <b>Diabolique</b> by John Paul Fitch (12-16-23) - Ultimately I was not overly impressed with this book. This is basically a book of horror short stories with various themes. Most of the stories had some intriguing parts but overall fell flat to me. Some of the monsters seemed interesting in themselves, but as mentioned the rest of the story just fell apart for me personally cause I found it hard to follow the primary storyteller. Overall, dont regret reading it, but its not something I could recommend and would likely not read again.
 
+2. <b>The Memory Police</b> by Yoko Ogawa (1-13-24) - This was a suprise and I found it somewhat enjoyable though quite different then anything I have probably read before. The basic premise is that the main character and the people who live on this island (somewhere around Japan), live a perfectly normal every day existence. The largest difference is that every now and again things disappears. What this means is that, say while you are sleeping, as this always seems to happen overnight, picture frames disappear. When you wake up in the morning, something feels off about your head, you see these things on your dresser but have no idea what they are. Eventually you realize they were things to hold pictures in but have no idea what they are called. Then you are required to remove them all from your house and dispose of them and never have them again. This is enforce by a sort of Nazi like storm trooper type unit call Memory Police. All around a fun read.
+
 
 ### Currently Reading
 
 1.	AI 2041 by Kai Fu Lee
-2.	The Memory Police by Yoko Ogawa
+2.	Sojourn: The Legend of Drizzt by R.A Salvatore
 
-### Current Book Completed Count as of 1/12/24
+### Current Book Completed Count as of 1/14/24
 
 Non-fiction - 1\
-Fiction - 1
+Fiction - 2
 
 
 

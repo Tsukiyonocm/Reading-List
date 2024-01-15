@@ -78,6 +78,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Living Dead</b> by George Romero and Daniel Kraus (12-19-21)\
 <b>Lord of the Flies</b> by William Golding (5-27-20)\
 <b>Lord of Souls</b> by Greg Keyes (6-2-21)\
+<b>The Memory Police</b> by Yoko Ogawa (1-13-24)\
 <b>Nights of the Living Dead</b> by Anthology (3-13-21)\
 <b>Pan’s Labyrinth</b> by Guillermo Del Toro and Cornellia Funke (7-4-21)\
 <b>Patron Tales</b> by Russell Smeaton  (12-16-22)\
@@ -92,11 +93,12 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Witcher: Baptism of Fire</b> by Andrzej Sapkowski (2/13/23)
 
 ### The Legend of Drizzt
-<b>Relentless</b> by R.A. Salvatore (1-25-21)\
-<b>Boundless</b> by R. A. Salvatore (4-10-20)
-
+<b>Homeland</b> by R. A. Salvatore (6-13-22)\
 <b>Exile</b> by R. A. Salvatore (10-28-23)\
-<b>Homeland</b> by R. A. Salvatore (6-13-22)
+
+<b>Boundless</b> by R. A. Salvatore (4-10-20)\
+<b>Relentless</b> by R.A. Salvatore (1-25-21)
+
 
 ### The Expanse Series
 <b>Cibola Burn (The Expanse Book 4)</b> by James S. A. Corey (1-16-20)\
