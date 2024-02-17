@@ -123,6 +123,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: Thrawn Ascendancy - Chaos Rising</b> by Timothy Zahn (2-8-21)\
 <b>Star Wars: Thrawn Treason</b> by Timothy Zahn (9-21-20)\
 <b>Star Wars: Rebel Rising</b> by Beth Revis (12-1-19)\
+<b>Star Wars: Queens Shadow</b> by E. K. Johnston (2-14-24)
 <b>Star Wars: Queens Peril</b> by E. K. Johnston (8-7-23)\
 <b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22)
 

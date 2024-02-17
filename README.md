@@ -16,16 +16,18 @@
 
 3. <b>Sojourn</b> by R. A. Salvatore (1-29-23) - I believe I wrote it in the previous thoughts on these books, this series is just stunning and so glad I am re-reading it all these years later. This one takes Drizzt out of the Underdark and into the over world as he starts on the journey that he is well known for. Spectacular story, great characters and just the write mix of wit and emotion mixed in. Again the monologues of Drizzt are just spectacular and some of the best bits of the overall story. Frankly I feel I could write this for almost every book in the series that I have at least personally read.
 
+4. <b>Star Wars: Queens Shadow</b> by E. K. Johnston (2-14-24) - This book took place in the interim periods of episode 1 and episode 2. The story starts largely on Amidala's last couple of days of being queen and goes into the first year or so of being a senator for Naboo. Overall was interesting to see the interactions between the various senators and her. For a story that largely did not have much going on with it, I still found it interesting to read as it filled in the world a bit more.
+
 
 ### Currently Reading
 
 1.	AI 2041 by Kai Fu Lee
-2.	Star Wars: Queens Shadow by E. K. Johnston
+2.	Star Wars: The High Republic - Midnight Horizon by Daniel Jose Older
 
-### Current Book Completed Count as of 1/30/24
+### Current Book Completed Count as of 2/16/24
 
 Non-fiction - 1\
-Fiction - 3
+Fiction - 4
 
 
 
