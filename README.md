@@ -9,7 +9,7 @@
 ### Non-Fiction
 1. <b>Digital Minimalism</b> by Cal Newport (1-9-24) - Overall this wasn't quite what I was hoping for. I am not sure what I was looking for to be honest, but this was basically just a book on not spending so much time on social media largely. The book did slightly go over spending time on other websites and just in general not spending much time on your phone, but otherwise it didn't add much I had not already read elsewhere. I think I was looking more into things that can be done to help minimalism in general, sort of like scanning physical images and storing digitally, or storing digital paperwork type of things. Sadly not quite what was received.
 
-test
+2. <b>AI 2041: Ten Visions of Our Future</b> by Kai-fu Lee and Chen Qiufan (3-12-24) - So this was a mixed bag of what I thought I was going to get and what I got. I had assumed this would be more of a deep dive into AI but sadly the book largly skimmed the surface of it. That said, I still found it enjoyable to read and it told me a lot of things on the horizon that I was not familiar with. The book covered AI teaching, driving, UBI, AI happiness, AI bring about plenitude and much more. Overall the Plentitude chapters and AI Teaching was probably the most interesting. The AI teaching is either seperate or in addition to a live teacher where the class content is customized for the student based on their strengths, weakness and what they are interested in. Plenitude is about the coming where AI is able to drive down the costs of commodities down to near zero because of the ease of manufacture and the lower cost in general for everything. Overall the book made everything seem all shiney and new and while I doubt it will go as smoothly as portrayed, I sure hope it keeps this course either way.
 
 ### Fiction
 1. <b>Diabolique</b> by John Paul Fitch (12-16-23) - Ultimately I was not overly impressed with this book. This is basically a book of horror short stories with various themes. Most of the stories had some intriguing parts but overall fell flat to me. Some of the monsters seemed interesting in themselves, but as mentioned the rest of the story just fell apart for me personally cause I found it hard to follow the primary storyteller. Overall, dont regret reading it, but its not something I could recommend and would likely not read again.
@@ -23,12 +23,12 @@ test
 
 ### Currently Reading
 
-1.	AI 2041 by Kai Fu Lee
+1.	The Anatomy of Fascism by Robert O. Paxton
 2.	Star Wars: The High Republic - Midnight Horizon by Daniel Jose Older
 
-### Current Book Completed Count as of 2/16/24
+### Current Book Completed Count as of 3/15/24
 
-Non-fiction - 1\
+Non-fiction - 2\
 Fiction - 4
 
 
