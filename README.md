@@ -9,6 +9,8 @@
 ### Non-Fiction
 1. <b>Digital Minimalism</b> by Cal Newport (1-9-24) - Overall this wasn't quite what I was hoping for. I am not sure what I was looking for to be honest, but this was basically just a book on not spending so much time on social media largely. The book did slightly go over spending time on other websites and just in general not spending much time on your phone, but otherwise it didn't add much I had not already read elsewhere. I think I was looking more into things that can be done to help minimalism in general, sort of like scanning physical images and storing digitally, or storing digital paperwork type of things. Sadly not quite what was received.
 
+test
+
 ### Fiction
 1. <b>Diabolique</b> by John Paul Fitch (12-16-23) - Ultimately I was not overly impressed with this book. This is basically a book of horror short stories with various themes. Most of the stories had some intriguing parts but overall fell flat to me. Some of the monsters seemed interesting in themselves, but as mentioned the rest of the story just fell apart for me personally cause I found it hard to follow the primary storyteller. Overall, dont regret reading it, but its not something I could recommend and would likely not read again.
 
