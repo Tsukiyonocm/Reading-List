@@ -11,6 +11,8 @@
 
 2. <b>AI 2041: Ten Visions of Our Future</b> by Kai-fu Lee and Chen Qiufan (3-12-24) - So this was a mixed bag of what I thought I was going to get and what I got. I had assumed this would be more of a deep dive into AI but sadly the book largly skimmed the surface of it. That said, I still found it enjoyable to read and it told me a lot of things on the horizon that I was not familiar with. The book covered AI teaching, driving, UBI, AI happiness, AI bring about plenitude and much more. Overall the Plentitude chapters and AI Teaching was probably the most interesting. The AI teaching is either seperate or in addition to a live teacher where the class content is customized for the student based on their strengths, weakness and what they are interested in. Plenitude is about the coming where AI is able to drive down the costs of commodities down to near zero because of the ease of manufacture and the lower cost in general for everything. Overall the book made everything seem all shiney and new and while I doubt it will go as smoothly as portrayed, I sure hope it keeps this course either way.
 
+3. <b>Get Well Soon: History's Worst Plagues and the Heroes Who Faught Them</b> by Jennifer Wright (3-19-24) - This was an interesting read. It basically looked at some of the worst plagues from history. Some of which it went into was Polio, Small Pox, Bubonic Plague and Leprosy among others. Overall the book did not go much indepth of any of these diseases as a whole, but it did dive into how the populace and leadership in some cases reacted to the outbreaks, as well as how those infected were treated as well. There is a wide range of how people were treated throughout history among which those with Leprosy on Hawaii for instance were removed from the populace and isolated alone on an island. This island eventually become home to hundres of lepors over time and spoke about how a priest came over to eventually treat these people as humans again. Overall was a good read for an introduction to the various diseases, but by no means is the reading extensive.
+
 ### Fiction
 1. <b>Diabolique</b> by John Paul Fitch (12-16-23) - Ultimately I was not overly impressed with this book. This is basically a book of horror short stories with various themes. Most of the stories had some intriguing parts but overall fell flat to me. Some of the monsters seemed interesting in themselves, but as mentioned the rest of the story just fell apart for me personally cause I found it hard to follow the primary storyteller. Overall, dont regret reading it, but its not something I could recommend and would likely not read again.
 
@@ -28,7 +30,7 @@
 
 ### Current Book Completed Count as of 3/15/24
 
-Non-fiction - 2\
+Non-fiction - 3\
 Fiction - 4
 
 
