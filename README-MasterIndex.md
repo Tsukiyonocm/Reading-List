@@ -129,6 +129,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: Queens Peril</b> by E. K. Johnston (8-7-23)\
 <b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22)
 
+<b>Star Wars: The High Republic - Midnight Horizon</b> (3-24-24)
 <b>Star Wars: The High Republic - The Fallen Star</> by Claudia Gray (11-6-23)\
 <b>Star Wars: The High Republic - Tempest Runner</b> by Cavan Scott (11-23-23)\
 <b>Star Wars: The High Republic - Out of the Shadows</b> by Justina Ireland (9-4-23)\

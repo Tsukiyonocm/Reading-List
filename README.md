@@ -22,16 +22,18 @@
 
 4. <b>Star Wars: Queens Shadow</b> by E. K. Johnston (2-14-24) - This book took place in the interim periods of episode 1 and episode 2. The story starts largely on Amidala's last couple of days of being queen and goes into the first year or so of being a senator for Naboo. Overall was interesting to see the interactions between the various senators and her. For a story that largely did not have much going on with it, I still found it interesting to read as it filled in the world a bit more.
 
+5. <b>Star Wars: The High Republic - Midnight Horizon</b> (3-24-24) - So this story actually takes place concurrently with the last High Republic story I read called "The Fallen Star". This story though takes place on Corellia where there is a Nihil plot being uncovered. In the course of events the story is unwound and we have to see things from the perspectives of the Jedi who are on Corellia and can feel the events going on back on Starlight Beacon where their friends are dying. All around was a pretty decent read, was sort of interesting seeing things play out from a different perspective and them having to contend with their feelings and wanting to run immedietly to try to save their friends back on the station. 
+
 
 ### Currently Reading
 
 1.	The Anatomy of Fascism by Robert O. Paxton
-2.	Star Wars: The High Republic - Midnight Horizon by Daniel Jose Older
+2.	Upgrade by Blake Crouch
 
-### Current Book Completed Count as of 3/15/24
+### Current Book Completed Count as of 3/27/24
 
 Non-fiction - 3\
-Fiction - 4
+Fiction - 5
 
 
 
