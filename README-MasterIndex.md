@@ -90,6 +90,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Restaurant at the End of the Galaxy</b> by Douglas Adams (1-16-22)\
 <b>Seveneves</b> by Neal Stephenson (5-7-21)\
 <b>The Traitor Baru Cormorant</b> by Seth Dickinson (3/24/23)\
+<b>Upgrade</b> by Blake Crouch (4-12-24)\
 <b>The Way of Kings</b> by Brandon Sanderson (7/16/23)\
 <b>Wayward Pines - Pines</b> by Blake Crouch (7/29/23)\
 <b>The Witcher: Baptism of Fire</b> by Andrzej Sapkowski (2/13/23)
