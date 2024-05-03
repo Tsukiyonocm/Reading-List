@@ -26,15 +26,17 @@
 
 6. <b>Upgrade</b> by Blake Crouch (4-12-24) - Overall this was a good story. It was not as good as Dark Matter or Recursion, but it was enjoyable. My main complaint was that it took about 2/3rds of the book to get moving and the conclusion was basically the last like 50 pages of it. The pacing just seemed a bit off. That said, the basis of the story was quite nice and it covered a topic that I have an interest in even if that some of things that happen arent exactly likely to happen in the world any time soon. The basics of the story is that because of a very bad event in years passed, genetic editing is banned and illegal. Naturally something is introduced which converts the primary players into what amounts to almost a super hero, though not in the sense of marval or DC anyway. Well worth the read overall, just not on par with the aforementioned books
 
+7. <b>A Thousand Pieces of You</b> by Claudia Gray (5-1-24) - Overall this story was a bit predictable but the characters and the settings were written well enough that I didnt care much. I enjoyed the story quite a bit. Do I like it enough to complete the series? I am not sure yet, but I do not regret reading the story. Overall the story is fairly basic, the main characters father gets murdered in the beginning, main character and the family friend decide to use the parents tech to go thru other dimensions to capture the killer and get revenge. OVerall thats about the extent of it. The settings all felt different but the same at the same time and like I said, I enjoyed the story for what it was. This author has a way of capturing my attention with liking the characters and just enjoying the overal story.
+
 ### Currently Reading
 
 1.	The Anatomy of Fascism by Robert O. Paxton
-2.	Thousand Pieces of You by Claudia Gray
+2.	The Witcher: The Tower of Swallows by Andrezej Sapkowski
 
 ### Current Book Completed Count as of 4/14/24
 
 Non-fiction - 3\
-Fiction - 6
+Fiction - 7
 
 
 
