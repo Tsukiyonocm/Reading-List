@@ -33,7 +33,7 @@
 1.	The Anatomy of Fascism by Robert O. Paxton
 2.	The Witcher: The Tower of Swallows by Andrezej Sapkowski
 
-### Current Book Completed Count as of 4/14/24
+### Current Book Completed Count as of 5/2/24
 
 Non-fiction - 3\
 Fiction - 7
