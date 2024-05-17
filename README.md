@@ -13,6 +13,9 @@
 
 3. <b>Get Well Soon: History's Worst Plagues and the Heroes Who Faught Them</b> by Jennifer Wright (3-19-24) - This was an interesting read. It basically looked at some of the worst plagues from history. Some of which it went into was Polio, Small Pox, Bubonic Plague and Leprosy among others. Overall the book did not go much indepth of any of these diseases as a whole, but it did dive into how the populace and leadership in some cases reacted to the outbreaks, as well as how those infected were treated as well. There is a wide range of how people were treated throughout history among which those with Leprosy on Hawaii for instance were removed from the populace and isolated alone on an island. This island eventually become home to hundres of lepors over time and spoke about how a priest came over to eventually treat these people as humans again. Overall was a good read for an introduction to the various diseases, but by no means is the reading extensive.
 
+4. <b>The Anatomy of Fascism</b> by Robert O. Paxton (5-16-24) - Overall this was an interesting read. It largely went into the history of Fascism, or more precisly the ideas that orginated the ideas anyway. It also delved into the failed experiements on where fascism failed to take hold and the thoughts on why it succeded where it did. It also went into how it could still happen today as the ideas it was based upon have not really gone away, though the likelyhood of this managing to garner the same level of success as it did in the 1930's is not likely to happen. The book was not the most interesting of reads honestly, this was more of a education book more so then it was a good tale being told, but it was intersting to see a side that is not often portrayed. I thing for thought is that its not the despot that creates fascism in a society but a set of factors that lead that society to get to that point. If at the end of the day the leader is just a terrible person, you might have a dictatorship, but that does not mean they are fascist.
+
+
 ### Fiction
 1. <b>Diabolique</b> by John Paul Fitch (12-16-23) - Ultimately I was not overly impressed with this book. This is basically a book of horror short stories with various themes. Most of the stories had some intriguing parts but overall fell flat to me. Some of the monsters seemed interesting in themselves, but as mentioned the rest of the story just fell apart for me personally cause I found it hard to follow the primary storyteller. Overall, dont regret reading it, but its not something I could recommend and would likely not read again.
 
@@ -30,12 +33,12 @@
 
 ### Currently Reading
 
-1.	The Anatomy of Fascism by Robert O. Paxton
+1.	How to Clone a Mammoth by Beth Shapiro
 2.	The Witcher: The Tower of Swallows by Andrezej Sapkowski
 
-### Current Book Completed Count as of 5/2/24
+### Current Book Completed Count as of 5/17/24
 
-Non-fiction - 3\
+Non-fiction - 4\
 Fiction - 7
 
 
