@@ -15,6 +15,8 @@
 
 4. <b>The Anatomy of Fascism</b> by Robert O. Paxton (5-16-24) - Overall this was an interesting read. It largely went into the history of Fascism, or more precisly the ideas that orginated the ideas anyway. It also delved into the failed experiements on where fascism failed to take hold and the thoughts on why it succeded where it did. It also went into how it could still happen today as the ideas it was based upon have not really gone away, though the likelyhood of this managing to garner the same level of success as it did in the 1930's is not likely to happen. The book was not the most interesting of reads honestly, this was more of a education book more so then it was a good tale being told, but it was intersting to see a side that is not often portrayed. I thing for thought is that its not the despot that creates fascism in a society but a set of factors that lead that society to get to that point. If at the end of the day the leader is just a terrible person, you might have a dictatorship, but that does not mean they are fascist.
 
+5. <b>How to Clone a Mammoth</b> by Beth Shapiro (6-13-24) - This was a fascinating read and its right in my wheel house of interests that I dont read enough about, Gene Editing. The book has a hook right at the beginning, she tells you that they will never clone the mammoth. Then they proceed to tell you about the science and how they will go about cloning a simulacrum of the mammoth. The basics of the story is that because of the degradation that happens to DNA over time and especially after anything dies, there is just not enough DNA to fully put together a 100% accurate mammoth. That said, they could in fact use the strands they have and insert that into another elephant and create a likeness of the mammoth. Or even using gene slicing to create new strands of DNA that make another species of elephant have properties of what made a mammoth a mammoth. Highly recommend this book and fantastic look into the world of gene editing and de extinction.
+
 
 ### Fiction
 1. <b>Diabolique</b> by John Paul Fitch (12-16-23) - Ultimately I was not overly impressed with this book. This is basically a book of horror short stories with various themes. Most of the stories had some intriguing parts but overall fell flat to me. Some of the monsters seemed interesting in themselves, but as mentioned the rest of the story just fell apart for me personally cause I found it hard to follow the primary storyteller. Overall, dont regret reading it, but its not something I could recommend and would likely not read again.
@@ -33,12 +35,12 @@
 
 ### Currently Reading
 
-1.	How to Clone a Mammoth by Beth Shapiro
+1.	I Stooged to Conquer by Moe Howard
 2.	The Witcher: The Tower of Swallows by Andrezej Sapkowski
 
-### Current Book Completed Count as of 5/17/24
+### Current Book Completed Count as of 6/14/24
 
-Non-fiction - 4\
+Non-fiction - 5\
 Fiction - 7
 
 

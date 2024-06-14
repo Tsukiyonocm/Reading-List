@@ -23,6 +23,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Great Influenza</b> by John M. Barry (6-29-20)\
 <b>Hivemind</b> by Sarah Rose Cavanagh (4-19-21)\
 <b>The Hot Zone</b> by Richard Preston (10-17-22)\
+<b>How to Clone a Mammoth</b> by Beth Shapiro (6-13-24)\
 <b>How to Raise an Adult</b> by Julie Lythcott-Haims (8-16-22)\
 <b>How We Will Live on Mars</b> by Stephen Petranek (9-27-23)\
 <b>Humankind</b> by Rutger Bregman (2-2-23)\
