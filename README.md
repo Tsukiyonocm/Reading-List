@@ -17,6 +17,8 @@
 
 5. <b>How to Clone a Mammoth</b> by Beth Shapiro (6-13-24) - This was a fascinating read and its right in my wheel house of interests that I dont read enough about, Gene Editing. The book has a hook right at the beginning, she tells you that they will never clone the mammoth. Then they proceed to tell you about the science and how they will go about cloning a simulacrum of the mammoth. The basics of the story is that because of the degradation that happens to DNA over time and especially after anything dies, there is just not enough DNA to fully put together a 100% accurate mammoth. That said, they could in fact use the strands they have and insert that into another elephant and create a likeness of the mammoth. Or even using gene slicing to create new strands of DNA that make another species of elephant have properties of what made a mammoth a mammoth. Highly recommend this book and fantastic look into the world of gene editing and de extinction.
 
+6. <b>I Stooged to Conquer: The Autobiography of the Leader of the Three Stooges</b> by Moe Howard (6-18-24) - I was unsure of what to think going into this book. I am a huge fan of the stooges though and I should have read this a long time ago. Was a fantastic read that takes us thru Moe's memroies from being a kid up thru his death. The way its written I can hear it with his voice as the writing just comes off the way I remember him speaking in the shorts. The only other book I have ever been able to do this with was Typhoid Mary written by Anthony Bourdain. If a fan of the stooges, this will give you some of the insides to the life of the family, the hardships that was faced and the ups and downs thru the years. There are a bit of chuckles to be had along the way as well. There are plenty of pictures of everyone thru the years, both from the shorts and personal photos. Just fantastic.
+
 
 ### Fiction
 1. <b>Diabolique</b> by John Paul Fitch (12-16-23) - Ultimately I was not overly impressed with this book. This is basically a book of horror short stories with various themes. Most of the stories had some intriguing parts but overall fell flat to me. Some of the monsters seemed interesting in themselves, but as mentioned the rest of the story just fell apart for me personally cause I found it hard to follow the primary storyteller. Overall, dont regret reading it, but its not something I could recommend and would likely not read again.
@@ -35,12 +37,12 @@
 
 ### Currently Reading
 
-1.	I Stooged to Conquer by Moe Howard
+1.	Beyond Band of Brothers by Major Dick Winters
 2.	The Witcher: The Tower of Swallows by Andrezej Sapkowski
 
-### Current Book Completed Count as of 6/14/24
+### Current Book Completed Count as of 6/18/24
 
-Non-fiction - 5\
+Non-fiction - 6\
 Fiction - 7
 
 
