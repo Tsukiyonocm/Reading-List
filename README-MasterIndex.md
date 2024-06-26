@@ -98,6 +98,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Way of Kings</b> by Brandon Sanderson (7/16/23)\
 <b>Wayward Pines - Pines</b> by Blake Crouch (7/29/23)\
 <b>The Witcher: Baptism of Fire</b> by Andrzej Sapkowski (2/13/23)
+<b>The Witcher: The Tower of Swallows</b> by Andrezej Sapkowski (6-24-24)\
 
 ### The Legend of Drizzt
 <b>Homeland</b> by R. A. Salvatore (6-13-22)\

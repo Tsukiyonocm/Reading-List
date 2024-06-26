@@ -35,15 +35,19 @@
 
 7. <b>A Thousand Pieces of You</b> by Claudia Gray (5-1-24) - Overall this story was a bit predictable but the characters and the settings were written well enough that I didnt care much. I enjoyed the story quite a bit. Do I like it enough to complete the series? I am not sure yet, but I do not regret reading the story. Overall the story is fairly basic, the main characters father gets murdered in the beginning, main character and the family friend decide to use the parents tech to go thru other dimensions to capture the killer and get revenge. OVerall thats about the extent of it. The settings all felt different but the same at the same time and like I said, I enjoyed the story for what it was. This author has a way of capturing my attention with liking the characters and just enjoying the overal story.
 
+8. <b>The Witcher: The Tower of Swallows</b> by Andrezej Sapkowski (6-24-24) - The last couple of books in The Witcher series, while good, have been sort of odd. I get thru reading them and I almost feel like not much has happened. Ive enjouyed the lore and I have enjoyed the tale regardless, but it sort of just reminds me of various aspects of the Lord of the Rings where nothing happened outside of the people walking to a destination. This story gave us a much more indepth story on what happened with Ciri, went a bit into what's going on with Yennefer, and we got the Geralt himself doing his things and slaying people all over. Overall as stated, I like the story and I am intrigued to see how the overall story arc starts winding down to its conclusion. Especially with Ciri as she seems to have become wicked a bit over the time away from the main crew and on her own.
+
+
+
 ### Currently Reading
 
 1.	Beyond Band of Brothers by Major Dick Winters
-2.	The Witcher: The Tower of Swallows by Andrezej Sapkowski
+2.	We are Here to Hurt Each Other by Paula D. Ashe
 
-### Current Book Completed Count as of 6/18/24
+### Current Book Completed Count as of 6/24/24
 
 Non-fiction - 6\
-Fiction - 7
+Fiction - 8
 
 
 
