@@ -37,17 +37,19 @@
 
 8. <b>The Witcher: The Tower of Swallows</b> by Andrezej Sapkowski (6-24-24) - The last couple of books in The Witcher series, while good, have been sort of odd. I get thru reading them and I almost feel like not much has happened. Ive enjouyed the lore and I have enjoyed the tale regardless, but it sort of just reminds me of various aspects of the Lord of the Rings where nothing happened outside of the people walking to a destination. This story gave us a much more indepth story on what happened with Ciri, went a bit into what's going on with Yennefer, and we got the Geralt himself doing his things and slaying people all over. Overall as stated, I like the story and I am intrigued to see how the overall story arc starts winding down to its conclusion. Especially with Ciri as she seems to have become wicked a bit over the time away from the main crew and on her own.
 
+9. <b>We Are Here to Hurt Each Other</b> by Paula D Ashe (7-2-24) - This was a strange read. I bought this on a whim largely because of the cover looked interesting to me. I had thought it was an actual story, but it ended up being some sadistic short stories that involved a lot of people being brutalized in some way. It was somewhat interesting on the whole, but was just not expecting it. Not sure I would read more from the author? Overall I just didnt really feel connected to the stories, but they were brutal to say the least. In various ways people were getting ripped apart and just cut to pieces, getting their faces blown off with shotguns. Was just all over the place.
+
 
 
 ### Currently Reading
 
 1.	Beyond Band of Brothers by Major Dick Winters
-2.	We are Here to Hurt Each Other by Paula D. Ashe
+2.	The Crystal Shard by R. A. Salavatore
 
-### Current Book Completed Count as of 6/24/24
+### Current Book Completed Count as of 7/3/24
 
 Non-fiction - 6\
-Fiction - 8
+Fiction - 9
 
 
 
