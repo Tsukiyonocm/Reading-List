@@ -11,6 +11,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Astrophysics for People in a Hurry</b> by Neil DeGrasse Tyson (1-26-20)\
 <b>Auschwitz</b> by Miklos Nyiszali (10-16-23)\
 <b>Bad Blood</b> by John Carreyou (8-12-20)\
+<b> Beyond Band of Brothers</b> by Major Dick Winters (7-6-24)\
 <b>Brain Rules</b> by John Medina (10-5-23)\
 <b>Chasing Stardust</b> by Natalie Starkey (4-30-22)\
 <b>Deadliest Enemy</b> by Michael T. Osterholm (5-7-20)\

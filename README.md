@@ -19,6 +19,8 @@
 
 6. <b>I Stooged to Conquer: The Autobiography of the Leader of the Three Stooges</b> by Moe Howard (6-18-24) - I was unsure of what to think going into this book. I am a huge fan of the stooges though and I should have read this a long time ago. Was a fantastic read that takes us thru Moe's memroies from being a kid up thru his death. The way its written I can hear it with his voice as the writing just comes off the way I remember him speaking in the shorts. The only other book I have ever been able to do this with was Typhoid Mary written by Anthony Bourdain. If a fan of the stooges, this will give you some of the insides to the life of the family, the hardships that was faced and the ups and downs thru the years. There are a bit of chuckles to be had along the way as well. There are plenty of pictures of everyone thru the years, both from the shorts and personal photos. Just fantastic.
 
+7. <b> Beyond Band of Brothers</b> by Major Dick Winters (7-6-24) - Ever since I first watched Band of Brothers many years ago I have felt it was a fantastic show. Somehow though, I did not realize untill more recently that it was based off books written by some of the troops that was involved. Primarily off the diary and writings from Dick Winters who led Easy Company and the rest of the Battalion from the outset of the war. If you have seen the show, this follows the events fairly closely but gives a bit more insight from his personal perspective of happenings. It follows the events from Normandy to Holland to Bastiogne and so forth. It did not go into much detail of the events from their coming across the concentration camp, which I was a bit disappointed by, but overall was a fascinating book reading about events from the perspective of someone who was there.
+
 
 ### Fiction
 1. <b>Diabolique</b> by John Paul Fitch (12-16-23) - Ultimately I was not overly impressed with this book. This is basically a book of horror short stories with various themes. Most of the stories had some intriguing parts but overall fell flat to me. Some of the monsters seemed interesting in themselves, but as mentioned the rest of the story just fell apart for me personally cause I found it hard to follow the primary storyteller. Overall, dont regret reading it, but its not something I could recommend and would likely not read again.
@@ -43,12 +45,12 @@
 
 ### Currently Reading
 
-1.	Beyond Band of Brothers by Major Dick Winters
+1.	A Brave Black Regiment by Captain Luis F. Emilio
 2.	The Crystal Shard by R. A. Salavatore
 
-### Current Book Completed Count as of 7/3/24
+### Current Book Completed Count as of 7/7/24
 
-Non-fiction - 6\
+Non-fiction - 7\
 Fiction - 9
 
 
