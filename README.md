@@ -27,7 +27,7 @@
 
 2. <b>The Memory Police</b> by Yoko Ogawa (1-13-24) - This was a suprise and I found it somewhat enjoyable though quite different then anything I have probably read before. The basic premise is that the main character and the people who live on this island (somewhere around Japan), live a perfectly normal every day existence. The largest difference is that every now and again things disappears. What this means is that, say while you are sleeping, as this always seems to happen overnight, picture frames disappear. When you wake up in the morning, something feels off about your head, you see these things on your dresser but have no idea what they are. Eventually you realize they were things to hold pictures in but have no idea what they are called. Then you are required to remove them all from your house and dispose of them and never have them again. This is enforce by a sort of Nazi like storm trooper type unit call Memory Police. All around a fun read.
 
-3. <b>Sojourn</b> by R. A. Salvatore (1-29-23) - I believe I wrote it in the previous thoughts on these books, this series is just stunning and so glad I am re-reading it all these years later. This one takes Drizzt out of the Underdark and into the over world as he starts on the journey that he is well known for. Spectacular story, great characters and just the write mix of wit and emotion mixed in. Again the monologues of Drizzt are just spectacular and some of the best bits of the overall story. Frankly I feel I could write this for almost every book in the series that I have at least personally read.
+3. <b>Sojourn</b> by R. A. Salvatore (1-29-24) - I believe I wrote it in the previous thoughts on these books, this series is just stunning and so glad I am re-reading it all these years later. This one takes Drizzt out of the Underdark and into the over world as he starts on the journey that he is well known for. Spectacular story, great characters and just the write mix of wit and emotion mixed in. Again the monologues of Drizzt are just spectacular and some of the best bits of the overall story. Frankly I feel I could write this for almost every book in the series that I have at least personally read.
 
 4. <b>Star Wars: Queens Shadow</b> by E. K. Johnston (2-14-24) - This book took place in the interim periods of episode 1 and episode 2. The story starts largely on Amidala's last couple of days of being queen and goes into the first year or so of being a senator for Naboo. Overall was interesting to see the interactions between the various senators and her. For a story that largely did not have much going on with it, I still found it interesting to read as it filled in the world a bit more.
 
@@ -41,17 +41,18 @@
 
 9. <b>We Are Here to Hurt Each Other</b> by Paula D Ashe (7-2-24) - This was a strange read. I bought this on a whim largely because of the cover looked interesting to me. I had thought it was an actual story, but it ended up being some sadistic short stories that involved a lot of people being brutalized in some way. It was somewhat interesting on the whole, but was just not expecting it. Not sure I would read more from the author? Overall I just didnt really feel connected to the stories, but they were brutal to say the least. In various ways people were getting ripped apart and just cut to pieces, getting their faces blown off with shotguns. Was just all over the place.
 
+10. <b>The Crystal Shard</b> by R. A. Salvatore (8-6-24) - What else needs to be said about this book? While I originally read the Dark Elf books in chronilogical order, this is truly the book that started the series. Largely pits the main players against a wayward wizard who gets his hands on the Crystal Shard. Being controlled by the crystal largely he created an army to take over Ten Towns. Then the adventure begins. A great read and loving to have reread this for the first time since I was in high school, which at this point was first done back about 23 years or so ago. 
 
 
 ### Currently Reading
 
 1.	A Brave Black Regiment by Captain Luis F. Emilio
-2.	The Crystal Shard by R. A. Salavatore
+2.	Star Wars: Path of Deceit by Tessa Gratton
 
-### Current Book Completed Count as of 7/7/24
+### Current Book Completed Count as of 8/7/24
 
 Non-fiction - 7\
-Fiction - 9
+Fiction - 10
 
 
 

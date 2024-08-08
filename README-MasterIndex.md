@@ -105,7 +105,8 @@ With the fiction books I might try to do things slightly different, I tend to re
 ### The Legend of Drizzt
 <b>Homeland</b> by R. A. Salvatore (6-13-22)\
 <b>Exile</b> by R. A. Salvatore (10-28-23)\
-<b>Sojourn</b> by R. A. Salvatore (1-29-23)\
+<b>Sojourn</b> by R. A. Salvatore (1-29-24)\
+<b>The Crystal Shard</b> by R. A. Salvatore (8-6-24)\
 
 <b>Boundless</b> by R. A. Salvatore (4-10-20)\
 <b>Relentless</b> by R.A. Salvatore (1-25-21)
