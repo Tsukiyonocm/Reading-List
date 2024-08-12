@@ -4,6 +4,7 @@ So this is a master list of the books I have read starting December 1st 2019. Th
 With the fiction books I might try to do things slightly different, I tend to read some series, which I will try to post them in chronological order, if possible, and the stand alones I will keep in alphabetical order... shall see how this goes.
 
 ## Non-fiction
+<b>A Brave Black Regiment</b> by Captain Luis F. Emilio (8-11-24)\
 <b>A Crack in Creation: Gene Editing and the Unthinkable Power to Control Evolution</b> by Jennifer Doudna (1-15-20)\
 <b>AI 2041: Ten Visions of Our Future</b> by Kai-fu Lee and Chen Qiufan (3-12-24)\
 <b>The Anatomy of Fascism</b> by Robert O. Paxton (5-16-24)
@@ -11,7 +12,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Astrophysics for People in a Hurry</b> by Neil DeGrasse Tyson (1-26-20)\
 <b>Auschwitz</b> by Miklos Nyiszali (10-16-23)\
 <b>Bad Blood</b> by John Carreyou (8-12-20)\
-<b> Beyond Band of Brothers</b> by Major Dick Winters (7-6-24)\
+<b>Beyond Band of Brothers</b> by Major Dick Winters (7-6-24)\
 <b>Brain Rules</b> by John Medina (10-5-23)\
 <b>Chasing Stardust</b> by Natalie Starkey (4-30-22)\
 <b>Deadliest Enemy</b> by Michael T. Osterholm (5-7-20)\
@@ -24,6 +25,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Great Influenza</b> by John M. Barry (6-29-20)\
 <b>Hivemind</b> by Sarah Rose Cavanagh (4-19-21)\
 <b>The Hot Zone</b> by Richard Preston (10-17-22)\
+<b>How to Build a Dinosaur<b> by Jack Horner (8-11-24)\
 <b>How to Clone a Mammoth</b> by Beth Shapiro (6-13-24)\
 <b>How to Raise an Adult</b> by Julie Lythcott-Haims (8-16-22)\
 <b>How We Will Live on Mars</b> by Stephen Petranek (9-27-23)\
