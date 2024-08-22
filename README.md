@@ -25,6 +25,8 @@
 
 9. <b>How to Build a Dinosaur<b> by Jack Horner (8-11-24) - I was recommended this book by a good friend of mine who is big into dinosaurs and also because of my interest in reading "How to Clone a Mammoth" read earlier in the year. This delves into the genetics again but does so in a way as sort of reverse engineering a dinosaur. For instance, take a chicken egg, using the hormones during development you could make it so that the teeth grow in to the beak, or you could make it no longer have feathers, or a longer snout, or a tail. Its not so much about creating an actual dinosaur as it is creating and finding out the mechanisms that were in place to to originally create these features and triggering them to recreate these features that evolution has since removed. OVerall was quite interesting read and really enjoy the bits about the sciences merging together to create a more full picture of evolution and all the possibilities of what this new info could help with in the future.
 
+10. <b>A Rough Ride to the Future</b> by James Lovelock (8-21-24) - At this point I believe I have read 3 or 4 books from this author. His theory of Gaia basically dictates that the planet is self sustaining and wants to create a static environment for life on it. This book delves a bit into the authors thoughts on Climate Change, in particular how he agrees that climate change is real, but that perhaps its not as big of an issue as its being made out to be. He states that this is largely because the models they are using to predict the future climate do not take into account all the factors that can help control the environment in one way or the other. The primary one the author goes into is the effect of the oceans on the entirety of the Earth climate. Largely that it can serve as a cooling factor for the planet and help slow the effects of the heating. He is also a big proponent of Nuclear energy as well which I always find fascinating to read about as I am not to knowledgeable on it. All around is an interesting read and would highly recommend this to anyone who just wants to learn more about the science of climate change from someone who is not really a denier, but someone who has a more cautioned view of it all.
+
 
 ### Fiction
 1. <b>Diabolique</b> by John Paul Fitch (12-16-23) - Ultimately I was not overly impressed with this book. This is basically a book of horror short stories with various themes. Most of the stories had some intriguing parts but overall fell flat to me. Some of the monsters seemed interesting in themselves, but as mentioned the rest of the story just fell apart for me personally cause I found it hard to follow the primary storyteller. Overall, don't regret reading it, but its not something I could recommend and would likely not read again.
@@ -50,12 +52,12 @@
 
 ### Currently Reading
 
-1.	A Rough Ride to the Future by James Lovelock
+1.	The Fourth Turning by William Strauss and Neil Howe
 2.	Star Wars: Path of Deceit by Tessa Gratton
 
-### Current Book Completed Count as of 8/7/24
+### Current Book Completed Count as of 8/22/24
 
-Non-fiction - 9\
+Non-fiction - 10\
 Fiction - 10
 
 
