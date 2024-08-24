@@ -8,7 +8,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>A Crack in Creation: Gene Editing and the Unthinkable Power to Control Evolution</b> by Jennifer Doudna (1-15-20)\
 <b>A Rough Ride to the Future</b> by James Lovelock (8-21-24)\
 <b>AI 2041: Ten Visions of Our Future</b> by Kai-fu Lee and Chen Qiufan (3-12-24)\
-<b>The Anatomy of Fascism</b> by Robert O. Paxton (5-16-24)
+<b>The Anatomy of Fascism</b> by Robert O. Paxton (5-16-24)\
 <b>Archaeology From Space</b> by Sarah Parcak (12-21-19)\
 <b>Astrophysics for People in a Hurry</b> by Neil DeGrasse Tyson (1-26-20)\
 <b>Auschwitz</b> by Miklos Nyiszali (10-16-23)\
@@ -103,13 +103,13 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Wayward Pines - Pines</b> by Blake Crouch (7/29/23)\
 <b>We Are Here to Hurt Each Other</b> by Paula D Ashe (7-2-24)\
 <b>The Witcher: Baptism of Fire</b> by Andrzej Sapkowski (2/13/23)\
-<b>The Witcher: The Tower of Swallows</b> by Andrezej Sapkowski (6-24-24)\
+<b>The Witcher: The Tower of Swallows</b> by Andrezej Sapkowski (6-24-24)
 
 ### The Legend of Drizzt
 <b>Homeland</b> by R. A. Salvatore (6-13-22)\
 <b>Exile</b> by R. A. Salvatore (10-28-23)\
 <b>Sojourn</b> by R. A. Salvatore (1-29-24)\
-<b>The Crystal Shard</b> by R. A. Salvatore (8-6-24)\
+<b>The Crystal Shard</b> by R. A. Salvatore (8-6-24)
 
 <b>Boundless</b> by R. A. Salvatore (4-10-20)\
 <b>Relentless</b> by R.A. Salvatore (1-25-21)
@@ -139,7 +139,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: Rebel Rising</b> by Beth Revis (12-1-19)\
 <b>Star Wars: Queens Shadow</b> by E. K. Johnston (2-14-24)\
 <b>Star Wars: Queens Peril</b> by E. K. Johnston (8-7-23)\
-<b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22)\
+<b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22)
 
 <b>Star Wars: The High Republic - Path of Deceit</b> by Tessa Gratton and Justina Ireland (8-22-24)\
 <b>Star Wars: The High Republic - Midnight Horizon</b> (3-24-24)\
@@ -152,7 +152,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: The High Republic - Into the Dark</b> by Claudia Gray (5-24-21)
 
 ### Star Wars Old Canon
-<b>Star Wars: Reven</b> By Drew Karpyshyn (2-7-20)\
+<b>Star Wars: Reven</b> By Drew Karpyshyn (2-7-20)
 
 ### Resident Evil
 <b>Resident Evil: Caliban Cove</b> by S.D. Perry (2-26-21)\
