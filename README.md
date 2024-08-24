@@ -49,16 +49,18 @@
 
 10. <b>The Crystal Shard</b> by R. A. Salvatore (8-6-24) - What else needs to be said about this book? While I originally read the Dark Elf books in chronological order, this is truly the book that started the series. Largely pits the main players against a wayward wizard who gets his hands on the Crystal Shard. Being controlled by the crystal largely he created an army to take over Ten Towns. Then the adventure begins. A great read and loving to have reread this for the first time since I was in high school, which at this point was first done back about 23 years or so ago. 
 
+11. <b>Star Wars: The High Republic - Path of Deceit</b> by Tessa Gratton and Justina Ireland (8-22-24) - I was sort of surprised by this read. Overall this was a descent read, but I was expecting it to be more related to the overall story arc of the rest of the High Republic books. This book had nothing to do with Nihil at all and instead focus on a Force Cult that has been stealing artifacts. I did enjoy everything about the story and there will be a continuation of it based on the ending and sort of looking forward to seeing where this is going.
+
 
 ### Currently Reading
 
 1.	The Fourth Turning by William Strauss and Neil Howe
-2.	Star Wars: Path of Deceit by Tessa Gratton
+2.	Cadaver by Nick Clause
 
-### Current Book Completed Count as of 8/22/24
+### Current Book Completed Count as of 8/24/24
 
 Non-fiction - 10\
-Fiction - 10
+Fiction - 11
 
 
 

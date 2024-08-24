@@ -139,9 +139,10 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: Rebel Rising</b> by Beth Revis (12-1-19)\
 <b>Star Wars: Queens Shadow</b> by E. K. Johnston (2-14-24)
 <b>Star Wars: Queens Peril</b> by E. K. Johnston (8-7-23)\
-<b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22)
+<b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22)\
 
-<b>Star Wars: The High Republic - Midnight Horizon</b> (3-24-24)
+<b>Star Wars: The High Republic - Path of Deceit</b> by Tessa Gratton and Justina Ireland (8-22-24)\
+<b>Star Wars: The High Republic - Midnight Horizon</b> (3-24-24)\
 <b>Star Wars: The High Republic - The Fallen Star</> by Claudia Gray (11-6-23)\
 <b>Star Wars: The High Republic - Tempest Runner</b> by Cavan Scott (11-23-23)\
 <b>Star Wars: The High Republic - Out of the Shadows</b> by Justina Ireland (9-4-23)\
@@ -151,7 +152,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: The High Republic - Into the Dark</b> by Claudia Gray (5-24-21)
 
 ### Star Wars Old Canon
-<b>Star Wars: Reven</b> By Drew Karpyshyn (2-7-20)
+<b>Star Wars: Reven</b> By Drew Karpyshyn (2-7-20)\
 
 ### Resident Evil
 <b>Resident Evil: Caliban Cove</b> by S.D. Perry (2-26-21)\
