@@ -102,7 +102,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Way of Kings</b> by Brandon Sanderson (7/16/23)\
 <b>Wayward Pines - Pines</b> by Blake Crouch (7/29/23)\
 <b>We Are Here to Hurt Each Other</b> by Paula D Ashe (7-2-24)\
-<b>The Witcher: Baptism of Fire</b> by Andrzej Sapkowski (2/13/23)
+<b>The Witcher: Baptism of Fire</b> by Andrzej Sapkowski (2/13/23)\
 <b>The Witcher: The Tower of Swallows</b> by Andrezej Sapkowski (6-24-24)\
 
 ### The Legend of Drizzt
@@ -137,7 +137,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: Thrawn Ascendancy - Chaos Rising</b> by Timothy Zahn (2-8-21)\
 <b>Star Wars: Thrawn Treason</b> by Timothy Zahn (9-21-20)\
 <b>Star Wars: Rebel Rising</b> by Beth Revis (12-1-19)\
-<b>Star Wars: Queens Shadow</b> by E. K. Johnston (2-14-24)
+<b>Star Wars: Queens Shadow</b> by E. K. Johnston (2-14-24)\
 <b>Star Wars: Queens Peril</b> by E. K. Johnston (8-7-23)\
 <b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22)\
 
