@@ -51,16 +51,18 @@
 
 11. <b>Star Wars: The High Republic - Path of Deceit</b> by Tessa Gratton and Justina Ireland (8-22-24) - I was sort of surprised by this read. Overall this was a descent read, but I was expecting it to be more related to the overall story arc of the rest of the High Republic books. This book had nothing to do with Nihil at all and instead focus on a Force Cult that has been stealing artifacts. I did enjoy everything about the story and there will be a continuation of it based on the ending and sort of looking forward to seeing where this is going.
 
+12. <b>Cadaver: Book 1</b> by Nick Clause (8-27-24) - So this was bought on a whim largely just cause I like zombies and the book was at the right price. I was pleasantly surprised. The book started off slow honestly and I really wasn't feeling it, but about 4th of the way through the story I started to enjoy it a lot more. The basics are that some kids find a body hanging in the woods in a cabin. They cut the person down and put in their car to take back to town. Once the zombie thaws is when the natural happens. So this we get to see the more or less start of the zombie virus coming into effect. I did enjoy this enough that I will probably by the next book in the series at some point and continue the story and see how it goes.
+
 
 ### Currently Reading
 
 1.	The Fourth Turning by William Strauss and Neil Howe
-2.	Cadaver by Nick Clause
+2.	Nier: Automata: Short Story Long
 
-### Current Book Completed Count as of 8/24/24
+### Current Book Completed Count as of 8/29/24
 
 Non-fiction - 10\
-Fiction - 11
+Fiction - 12
 
 
 

@@ -67,6 +67,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>All Systems Red</b> by Martha Wells (9-9-22)\
 <b>Bedtime Stories</b> by Russel Smeaton (2-15-21)\
 <b>Brave New World</b> by Aldous Huxley (11-25-21)\
+<b>Cadaver: Book 1</b> by Nick Clause (8-27-24)\
 <b>Canticle</b> by R. A. Salvatore (11-22-22)\
 <b>Come Closer</b> by Sara Grant (4-12-22)\
 <b>Dark Matter</b> by Blake Crouch (4-28-22)\
