@@ -57,7 +57,7 @@
 ### Currently Reading
 
 1.	The Fourth Turning by William Strauss and Neil Howe
-2.	Nier: Automata: Short Story Long
+2.	Nier: Automata: Short Story Long by Jun Eishima
 
 ### Current Book Completed Count as of 8/29/24
 
