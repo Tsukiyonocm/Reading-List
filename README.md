@@ -53,16 +53,18 @@
 
 12. <b>Cadaver: Book 1</b> by Nick Clause (8-27-24) - So this was bought on a whim largely just cause I like zombies and the book was at the right price. I was pleasantly surprised. The book started off slow honestly and I really wasn't feeling it, but about 4th of the way through the story I started to enjoy it a lot more. The basics are that some kids find a body hanging in the woods in a cabin. They cut the person down and put in their car to take back to town. Once the zombie thaws is when the natural happens. So this we get to see the more or less start of the zombie virus coming into effect. I did enjoy this enough that I will probably by the next book in the series at some point and continue the story and see how it goes.
 
+13. <b>Nier Automata: Short Story Long</b> by Jun Eishima (9-3-24) - So needless to say I love this game and I love the music associated with the games and just the universe in general. I only just found out about the books a few weeks ago and knew I had to give them a shot. I picked up this one as it was the first one released. Taking place at various points before, during and after the story of the game, it covers aspects of Emil, A2, and also backgrounds of 2B and 9S. Overall it was an interesting read and I especially loved the stories about 2B and Emil. Overall this gives me great hope about the rest of the books and I look forward to having a chance to read those in the future as well. 
+
 
 ### Currently Reading
 
 1.	The Fourth Turning by William Strauss and Neil Howe
-2.	Nier: Automata: Short Story Long by Jun Eishima
+2.	Forgotten Realms: Spellfire by Ed Greenwood
 
-### Current Book Completed Count as of 8/29/24
+### Current Book Completed Count as of 9/5/24
 
 Non-fiction - 10\
-Fiction - 12
+Fiction - 13
 
 
 
