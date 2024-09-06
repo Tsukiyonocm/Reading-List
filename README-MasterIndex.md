@@ -89,6 +89,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Lord of the Flies</b> by William Golding (5-27-20)\
 <b>Lord of Souls</b> by Greg Keyes (6-2-21)\
 <b>The Memory Police</b> by Yoko Ogawa (1-13-24)\
+<b>Nier Automata: Short Story Long</b> by Jun Eishima (9-3-24)\
 <b>Nights of the Living Dead</b> by Anthology (3-13-21)\
 <b>Pan’s Labyrinth</b> by Guillermo Del Toro and Cornellia Funke (7-4-21)\
 <b>Patron Tales</b> by Russell Smeaton  (12-16-22)\
