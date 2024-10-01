@@ -76,6 +76,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Elder Race</b> by Adrian Tchaikovsky (4-17-22)\
 <b>Fearful Symmetries</b> by Various Authors (10-05-21)\
 <b>The First Days</b> by Rhiannon Frater (11-4-21)\
+<b>Forgotten Realms: Spellfire</b> by Ed Greenwood (9-29-24)\
 <b>Foundation</b> by Issac Asimov (12-31-21)\
 <b>Goosebumps: Hall of Horrors - Why I Quit Zombie School</b> by R. L. Stein (8-7-23)\
 <b>Goosebumps: Welcome to Dead House</b> by R. L. Stein (4/4/23)\
