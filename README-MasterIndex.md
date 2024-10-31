@@ -21,6 +21,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Doctors from Hell</b> by Vivian Spitz (11-29-21)\
 <b>End Times: A Brief Guide to the End of the World</b> by Bryan Walsh (9-12-20)\
 <b>Fortitude: American Resilience in the Era of Outrage</b> by Dan Crenshaw (8-06-21)\
+<b>The Fourth Turning</b> by William Strauss (10-28-24)\
 <b>Get Well Soon: History's Worst Plagues and the Heroes Who Faught Them</b> by Jennifer Wright (3-19-24)\
 <b>The God Delusion</b> by Richard Dawkins (2-02-21)\
 <b>The Great Influenza</b> by John M. Barry (6-29-20)\

@@ -27,6 +27,8 @@
 
 10. <b>A Rough Ride to the Future</b> by James Lovelock (8-21-24) - At this point I believe I have read 3 or 4 books from this author. His theory of Gaia basically dictates that the planet is self sustaining and wants to create a static environment for life on it. This book delves a bit into the authors thoughts on Climate Change, in particular how he agrees that climate change is real, but that perhaps its not as big of an issue as its being made out to be. He states that this is largely because the models they are using to predict the future climate do not take into account all the factors that can help control the environment in one way or the other. The primary one the author goes into is the effect of the oceans on the entirety of the Earth climate. Largely that it can serve as a cooling factor for the planet and help slow the effects of the heating. He is also a big proponent of Nuclear energy as well which I always find fascinating to read about as I am not to knowledgeable on it. All around is an interesting read and would highly recommend this to anyone who just wants to learn more about the science of climate change from someone who is not really a denier, but someone who has a more cautioned view of it all.
 
+11. <b>The Fourth Turning</b> by William Strauss (10-28-24) - This was an interesting read for sure though I am not to sure how much I am able to believe. It seems to want to apply an overriding ideal across the entirety of a generation. Largely the book is looking forward into the time frame we currently find ourselves now, though we are likely at the end of the cycle now. We currently find ourselves in what the author calls the fourth turning. Previous fourth turnings include the times of World War 2, the Civil War, as well as the Revolutionary War. The book stats that at the end of this turning, this cycle, we should be heading into a golden age where humanity takes a bit of a leap forward. It remains to be seen, but was for sure interesting. There is a second book that delves into the fourth turning as things have turned out, not sure I will read it, but I might look a bit into it. 
+
 
 ### Fiction
 1. <b>Diabolique</b> by John Paul Fitch (12-16-23) - Ultimately I was not overly impressed with this book. This is basically a book of horror short stories with various themes. Most of the stories had some intriguing parts but overall fell flat to me. Some of the monsters seemed interesting in themselves, but as mentioned the rest of the story just fell apart for me personally cause I found it hard to follow the primary storyteller. Overall, don't regret reading it, but its not something I could recommend and would likely not read again.
@@ -60,12 +62,12 @@
 
 ### Currently Reading
 
-1.	The Fourth Turning by William Strauss and Neil Howe
+1.	Predictably Irrational by Dan Ariely
 2.	Star Wars: Death Star by Michael Reaves and Steve Perry
 
-### Current Book Completed Count as of 9/30/24
+### Current Book Completed Count as of 10/30/24
 
-Non-fiction - 10\
+Non-fiction - 11\
 Fiction - 14
 
 
