@@ -157,6 +157,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 
 ### Star Wars Old Canon
 <b>Star Wars: Reven</b> By Drew Karpyshyn (2-7-20)
+<b>Star Wars: Death Star</b> by Michael Reaves and Steve Perry (11-4-24)
 
 ### Resident Evil
 <b>Resident Evil: Caliban Cove</b> by S.D. Perry (2-26-21)\

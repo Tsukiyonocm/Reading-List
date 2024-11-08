@@ -59,16 +59,18 @@
 
 14. <b>Forgotten Realms: Spellfire</b> by Ed Greenwood (9-29-24) - I have not jumped much outside of the R.A Salvatore books when reading into the forgotten realms. I am really hoping to branch out more as for the most part, what I have read has been amazing. This title puts the main character as Shandril Shessair, she is largely just a woman who gets put in an impossible situation and comes out the better for it. She gets a gift that turns out the be largely genetic to her activated during a fight. This sets off a larger chain of events of evil upon evil seeking to capture or kill her. While not being as good as the Drizzt books I have read, the characters are intersting enough to keep me engaged even if the battles are not as well choreographed as the aforementioned books. All this taken into account, I will for sure be reading more in the future.
 
+15. <b>Star Wars: Death Star</b> by Michael Reaves and Steve Perry (11-4-24) - This book takes place in the legends line of books now and is not really canon to the current movies. That said, it was still interesting story, filled in some of the back story that was originally told about the Death Stars creation and also introduced some new characters into the mix which were overall pretty interesting. The story ultimately aligned with the original movie and you can see some of the various scenes line for line playing out. It was interesting seeing how these played a part in the overall arc of the story. All around was an interesting read and sort of surprised I never read it in the past.
+
 
 ### Currently Reading
 
 1.	Predictably Irrational by Dan Ariely
-2.	Star Wars: Death Star by Michael Reaves and Steve Perry
+2.	Slewfoot by Brom
 
-### Current Book Completed Count as of 10/30/24
+### Current Book Completed Count as of 11/7/24
 
 Non-fiction - 11\
-Fiction - 14
+Fiction - 15
 
 
 
