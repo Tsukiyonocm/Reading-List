@@ -28,13 +28,14 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Great Influenza</b> by John M. Barry (6-29-20)\
 <b>Hivemind</b> by Sarah Rose Cavanagh (4-19-21)\
 <b>The Hot Zone</b> by Richard Preston (10-17-22)\
-<b>How to Build a Dinosaur<b> by Jack Horner (8-11-24)\
+<b>How to Build a Dinosaur</b> by Jack Horner (8-11-24)\
 <b>How to Clone a Mammoth</b> by Beth Shapiro (6-13-24)\
 <b>How to Raise an Adult</b> by Julie Lythcott-Haims (8-16-22)\
 <b>How We Will Live on Mars</b> by Stephen Petranek (9-27-23)\
 <b>Humankind</b> by Rutger Bregman (2-2-23)\
 <b>I Stooged to Conquer: The Autobiography of the Leader of the Three Stooges</b> by Moe Howard (6-18-24)\
 <b>Insight Meditation: The Practice of Freedom</b> by Joseph Goldstein (11-20-23)\
+<b>Irrationally Predictable</b> by Dan Ariely (11-14-24)\
 <b>Japans Infamous Unit 731</b> by Hal Gold (12-16-22)\
 <b>The Killer Across the Table</b> by John Douglas and Mark Olshaker (2/19/21)\
 <b>Klaus Barbie: The Butcher of Lyons</b> by Tom Bowen (5-17-21)\
