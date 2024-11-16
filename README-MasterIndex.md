@@ -4,6 +4,7 @@ So this is a master list of the books I have read starting December 1st 2019. Th
 With the fiction books I might try to do things slightly different, I tend to read some series, which I will try to post them in chronological order, if possible, and the stand alones I will keep in alphabetical order... shall see how this goes.
 
 ## Non-fiction
+
 <b>A Brave Black Regiment</b> by Captain Luis F. Emilio (8-11-24)\
 <b>A Crack in Creation: Gene Editing and the Unthinkable Power to Control Evolution</b> by Jennifer Doudna (1-15-20)\
 <b>A Rough Ride to the Future</b> by James Lovelock (8-21-24)\
@@ -62,8 +63,8 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Yes to Life, In Spite of Everything</b> by Viktor Frankl (10-29-22)
 
 
-
 ## Fiction
+
 <b>Age of Ash</b> by Daniel Abraham (10-19-22)\
 <b>All Systems Red</b> by Martha Wells (9-9-22)\
 <b>Bedtime Stories</b> by Russel Smeaton (2-15-21)\
@@ -110,6 +111,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Witcher: The Tower of Swallows</b> by Andrezej Sapkowski (6-24-24)
 
 ### The Legend of Drizzt
+
 <b>Homeland</b> by R. A. Salvatore (6-13-22)\
 <b>Exile</b> by R. A. Salvatore (10-28-23)\
 <b>Sojourn</b> by R. A. Salvatore (1-29-24)\
@@ -120,6 +122,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 
 
 ### The Expanse Series
+
 <b>Cibola Burn (The Expanse Book 4)</b> by James S. A. Corey (1-16-20)\
 <b>Nemesis Games (The Expanse Book 5)</b> by James S. A. Corey (5-3-20)\
 <b>Babylons Ashes (The Expanse Book 6)</b> by James S. A. Corey (8-3-20)\
@@ -129,6 +132,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Expanse: Memories Legion</b> by James S. A. Corey (1/9/23)
 
 ### Star Wars New Canon - and sub-series within
+
 <b>Star Wars: The Last Jedi</b> by Jason Fry (6-1-22)\
 <b>Star Wars: The Force Awakens</b> by Alan Dean Foster (5-19-22)\
 <b>Star Wars: The Force Collector</b> by Kevin Schinick (8-19-20)\
@@ -156,10 +160,12 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: The High Republic - Into the Dark</b> by Claudia Gray (5-24-21)
 
 ### Star Wars Old Canon
+
 <b>Star Wars: Reven</b> By Drew Karpyshyn (2-7-20)
 <b>Star Wars: Death Star</b> by Michael Reaves and Steve Perry (11-4-24)
 
 ### Resident Evil
+
 <b>Resident Evil: Caliban Cove</b> by S.D. Perry (2-26-21)\
 <b>Resident Evil: City of the Dead</b> by S. D. Perry (7-15-21)\
 <b>Resident Evil: Underworld</b> by S. D. Perry (3-25-22)\

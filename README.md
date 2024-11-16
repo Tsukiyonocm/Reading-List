@@ -1,12 +1,14 @@
 # 2024 Books
 
 ## Books read starting December 1st 2019
+
 [Archive 2020](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2020.md)\
 [Archive 2021](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2021.md)\
 [Archive 2022](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2022.md)\
 [Archive 2023](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2023.md)
 
 ### Non-Fiction
+
 1. <b>Digital Minimalism</b> by Cal Newport (1-9-24) - Overall this wasn't quite what I was hoping for. I am not sure what I was looking for to be honest, but this was basically just a book on not spending so much time on social media largely. The book did slightly go over spending time on other websites and just in general not spending much time on your phone, but otherwise it didn't add much I had not already read elsewhere. I think I was looking more into things that can be done to help minimalism in general, sort of like scanning physical images and storing digitally, or storing digital paperwork type of things. Sadly not quite what was received.
 
 2. <b>AI 2041: Ten Visions of Our Future</b> by Kai-fu Lee and Chen Qiufan (3-12-24) - So this was a mixed bag of what I thought I was going to get and what I got. I had assumed this would be more of a deep dive into AI but sadly the book largely skimmed the surface of it. That said, I still found it enjoyable to read and it told me a lot of things on the horizon that I was not familiar with. The book covered AI teaching, driving, UBI, AI happiness, AI bring about plenitude and much more. Overall the Plentitude chapters and AI Teaching was probably the most interesting. The AI teaching is either separate or in addition to a live teacher where the class content is customized for the student based on their strengths, weakness and what they are interested in. Plenitude is about the coming where AI is able to drive down the costs of commodities down to near zero because of the ease of manufacture and the lower cost in general for everything. Overall the book made everything seem all shiny and new and while I doubt it will go as smoothly as portrayed, I sure hope it keeps this course either way.
@@ -30,7 +32,10 @@
 11. <b>The Fourth Turning</b> by William Strauss (10-28-24) - This was an interesting read for sure though I am not to sure how much I am able to believe. It seems to want to apply an overriding ideal across the entirety of a generation. Largely the book is looking forward into the time frame we currently find ourselves now, though we are likely at the end of the cycle now. We currently find ourselves in what the author calls the fourth turning. Previous fourth turnings include the times of World War 2, the Civil War, as well as the Revolutionary War. The book stats that at the end of this turning, this cycle, we should be heading into a golden age where humanity takes a bit of a leap forward. It remains to be seen, but was for sure interesting. There is a second book that delves into the fourth turning as things have turned out, not sure I will read it, but I might look a bit into it. 
 
 
+12. <b>Irrationally Predictable</b> by Dan Ariely (11-14-24) - Overall this was a fairly fascinating read. Among th precepts its talking about is that you can predict the irrational choices that the human mind will make. For instance, one of the thought experiments they mentioned is this, say you are in a store that has a pen you have been planning to buy for 20 dollars. Across town though
+
 ### Fiction
+
 1. <b>Diabolique</b> by John Paul Fitch (12-16-23) - Ultimately I was not overly impressed with this book. This is basically a book of horror short stories with various themes. Most of the stories had some intriguing parts but overall fell flat to me. Some of the monsters seemed interesting in themselves, but as mentioned the rest of the story just fell apart for me personally cause I found it hard to follow the primary storyteller. Overall, don't regret reading it, but its not something I could recommend and would likely not read again.
 
 2. <b>The Memory Police</b> by Yoko Ogawa (1-13-24) - This was a surprise and I found it somewhat enjoyable though quite different then anything I have probably read before. The basic premise is that the main character and the people who live on this island (somewhere around Japan), live a perfectly normal every day existence. The largest difference is that every now and again things disappears. What this means is that, say while you are sleeping, as this always seems to happen overnight, picture frames disappear. When you wake up in the morning, something feels off about your head, you see these things on your dresser but have no idea what they are. Eventually you realize they were things to hold pictures in but have no idea what they are called. Then you are required to remove them all from your house and dispose of them and never have them again. This is enforce by a sort of Nazi like storm trooper type unit call Memory Police. All around a fun read.
@@ -61,19 +66,12 @@
 
 15. <b>Star Wars: Death Star</b> by Michael Reaves and Steve Perry (11-4-24) - This book takes place in the legends line of books now and is not really canon to the current movies. That said, it was still interesting story, filled in some of the back story that was originally told about the Death Stars creation and also introduced some new characters into the mix which were overall pretty interesting. The story ultimately aligned with the original movie and you can see some of the various scenes line for line playing out. It was interesting seeing how these played a part in the overall arc of the story. All around was an interesting read and sort of surprised I never read it in the past.
 
-
 ### Currently Reading
 
-1.	Predictably Irrational by Dan Ariely
-2.	Slewfoot by Brom
+1. Predictably Irrational by Dan Ariely
+2. Slewfoot by Brom
 
 ### Current Book Completed Count as of 11/7/24
 
 Non-fiction - 11\
 Fiction - 15
-
-
-
-
-
-
