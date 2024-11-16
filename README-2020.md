@@ -10,7 +10,7 @@
 
 ## Books read starting December 1st 2019
 
-## Non-Fiction
+### Non-Fiction
 
 1. <b>Punished by Rewards</b> by Alfie Kohn (11-29-19) - Really interesting read about how rewards have a tendency to undermine peoples interest in following through with what the rewards are supposed to increase interest in. This is in regards to parenting, work place incentives, and largely any reward based option. Very fascinating overall and highly recommend it.
 
