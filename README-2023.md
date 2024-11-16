@@ -76,7 +76,6 @@
 
 19. <b>Star Wars: The High Republic - Tempest Runner</b> by Cavan Scott (11-23-23) - This was not quite what I was expecting when I first picked it up to read. First off, the "book" is written sort of like a screenplay, which makes sense since this was first written for an audio book format, but I always just assumed that it would be re-written in a standard book form for the release. Second, this was actually pretty decent and gave us a deep dive into the mind and life of what is actually one of the villains in the High Republic series of books so far. This book actually takes place prior to the book I finished right before this, but is completely unrelated largely to any of the other books in the sense that we follow Lourna Dee from when she is captured to how this book ends. All around an enjoyable read and really like the depth this gives to this anti-hero.
 
-
 ### Year Totals
 
 Non-fiction - 12\
