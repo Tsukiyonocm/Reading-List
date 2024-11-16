@@ -6,6 +6,8 @@
 [Archive 2022](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2022.md)\
 [Archive 2023](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2023.md)
 
+## Books read starting December 1st 2023
+
 ### Non-Fiction
 
 1. <b>Digital Minimalism</b> by Cal Newport (1-9-24) - Overall this wasn't quite what I was hoping for. I am not sure what I was looking for to be honest, but this was basically just a book on not spending so much time on social media largely. The book did slightly go over spending time on other websites and just in general not spending much time on your phone, but otherwise it didn't add much I had not already read elsewhere. I think I was looking more into things that can be done to help minimalism in general, sort of like scanning physical images and storing digitally, or storing digital paperwork type of things. Sadly not quite what was received.
