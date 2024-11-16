@@ -32,7 +32,7 @@
 11. <b>The Fourth Turning</b> by William Strauss (10-28-24) - This was an interesting read for sure though I am not to sure how much I am able to believe. It seems to want to apply an overriding ideal across the entirety of a generation. Largely the book is looking forward into the time frame we currently find ourselves now, though we are likely at the end of the cycle now. We currently find ourselves in what the author calls the fourth turning. Previous fourth turnings include the times of World War 2, the Civil War, as well as the Revolutionary War. The book stats that at the end of this turning, this cycle, we should be heading into a golden age where humanity takes a bit of a leap forward. It remains to be seen, but was for sure interesting. There is a second book that delves into the fourth turning as things have turned out, not sure I will read it, but I might look a bit into it. 
 
 
-12. <b>Irrationally Predictable</b> by Dan Ariely (11-14-24) - Overall this was a fairly fascinating read. Among th precepts its talking about is that you can predict the irrational choices that the human mind will make. For instance, one of the thought experiments they mentioned is this, say you are in a store that has a pen you have been planning to buy for 20 dollars. Across town though
+12. <b>Irrationally Predictable</b> by Dan Ariely (11-14-24) - Overall this was a fairly fascinating read. Among th precepts its talking about is that you can predict the irrational choices that the human mind will make. For instance, one of the thought experiments they mentioned is this, say you are in a store that has a pen you have been planning to buy for 20 dollars. Across town though this same pen is on sale at another store for 7 dollars off. Naturally you would head over to buy the pen for the cheaper price. Now though, you are buying a 500 dollar suit, across town though, that same suit can be bought for 7 dollars off. Would you go across town to buy that as well? Most everyone would not, its the same amount of savings, both are saving 7 dollars. This is part of the irrational behavior that sets us apart. The book also talked about how people will take a worse item because its free rather then spending even a 10 cents for a much better quality piece of candy. This was a quite interesting read all through it where the author went through the various experiments they used to come to their conclusions. Highly recommend this.
 
 ### Fiction
 
@@ -68,10 +68,10 @@
 
 ### Currently Reading
 
-1. Predictably Irrational by Dan Ariely
+1. Mengele - Unmasking the Angel of Death by David Marwell
 2. Slewfoot by Brom
 
-### Current Book Completed Count as of 11/7/24
+### Current Book Completed Count as of 11/16/24
 
-Non-fiction - 11\
+Non-fiction - 12\
 Fiction - 15
