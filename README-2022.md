@@ -1,12 +1,14 @@
 # 2022 Books
 
 ## Books read starting December 1st 2019
+
 [Archive 2020](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2020.md)\
 [Archive 2021](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2021.md)
 
 ## Books read starting December 1st 2021
 
 ### Non-Fiction
+
 1. <b>Quiet</b> by Susan Cain (1-10-22) - As an introvert myself, I wanted to read this largely to just read more about myself and why I am the way I am. Also to know that its normal and OK to be what I am and its not something that should be considered broken or in need to be fixed. What I found interesting is that there is different levels that introverts and extroverts can take. While its not a surprise to me that an introvert can come across as an extrovert given the right stimulus, I didn't realize that this can have an effect on someone when done for long term and to extremes. The other thing of interest here is realizing that even though society, at least western society, tends to look down on introverts, like most things, there is a need for balance in the world. Introverts can be every bit as good sellers, artist, musicians as any extrovert can be. Whats largely different between the two is how they can be drained or gain energy between various social situations and quiet time.
 
 2. <b>Typhoid Mary</b> by Anthony Bourdain (1-17-22) - I had been curious about the story of Mary Mallon for awhile. I knew the references to her, someone who is essentially a walking plague, but I really didn't know anything about the person in actuality. After reading this I still don't know a lot about her, but because of this fantastic story, I have a better idea of how she might have felt. He delves into her story from before she was first captured, relays what little of her story is known prior, then delves into the events of what happened. Doing this from a chefs perspective is a good take here because he is able to, likely anyway, put himself in her perspective as a head chef prior to being incarcerated on the island. A proud woman of irish upbringing, with someone barging into her life and flat out saying she is the cause of various typhoid outbreaks which had sickened and killed families that she was employed at. Ultimately relating how in the end, she lost most of her hope and lived till she died after some 25 years or so locked away on the island. All around, its a sad tale and a very humanizing story. Highly recommend the story to everyone.
@@ -79,9 +81,4 @@
 
 Non-fiction - 11\
 Fiction - 21
-
-
-
-
-
 
