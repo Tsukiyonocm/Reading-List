@@ -20,9 +20,9 @@
 ### Currently Reading
 
 1. Mengele - Unmasking the Angel of Death by David Marwell
-2. Slewfoot by Brom
+2. Beren and Luthien by J. R. R. Tolkien
 
-### Current Book Completed Count as of 11/16/24
+### Current Book Completed Count as of 11/23/24
 
 Non-fiction - \
-Fiction - 
+Fiction -

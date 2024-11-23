@@ -69,7 +69,9 @@
 
 15. <b>Star Wars: Death Star</b> by Michael Reaves and Steve Perry (11-4-24) - This book takes place in the legends line of books now and is not really canon to the current movies. That said, it was still interesting story, filled in some of the back story that was originally told about the Death Stars creation and also introduced some new characters into the mix which were overall pretty interesting. The story ultimately aligned with the original movie and you can see some of the various scenes line for line playing out. It was interesting seeing how these played a part in the overall arc of the story. All around was an interesting read and sort of surprised I never read it in the past.
 
+16. <b>Slewfoot</b> by Brom (11-20-24) - This is about what I expect from Brom, a tale of the mystical which a dark twist that happens, though in this case the twist wasn't much of a surprise to me ultimately. The story starts out in the year 1666 and in a some village in the new world, I forget exactly but I believe it is near or in Connecticut. Abitha is living on a farm outside of the village with her husband Edward in the forest. Disaster strikes and Edward is killed in an accident which involved some of the wildlings. In comes Samson who is touted at the beginning as being a devil. Overall you come to feel for the hardships of Abitha as the rest of the tale plays out. Overall was very good, probably wont read again, but will read more from the author in the future. 
+
 ### Year Totals
 
 Non-fiction - 12\
-Fiction - 15
+Fiction - 16

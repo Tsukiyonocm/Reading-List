@@ -102,6 +102,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Recursion</b> by Blake Crouch (2/21/23)\
 <b>The Restaurant at the End of the Galaxy</b> by Douglas Adams (1-16-22)\
 <b>Seveneves</b> by Neal Stephenson (5-7-21)\
+<b>Slewfoot</b> by Brom (11-20-24)\
 <b>A Thousand Pieces of You</b> by Claudia Gray (5-1-24)\
 <b>The Traitor Baru Cormorant</b> by Seth Dickinson (3/24/23)\
 <b>Upgrade</b> by Blake Crouch (4-12-24)\
