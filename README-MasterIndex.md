@@ -41,6 +41,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Klaus Barbie: The Butcher of Lyons</b> by Tom Bowen (5-17-21)\
 <b>Lifespan</b> by David Sinclair (6-20-22)\
 <b>The March of Folly</b> by Barbara Tuchman (8-8-23)\
+<b>Mengele: Unmasking the Angel of Death</b> by David G. Marwell (12-24-24)\
 <b>Mindset</b> by Carol S. Dweck (9-21-22)\
 <b>The Minimalist Home</b> by Joshua Becker (3/23/23)\
 <b>The More of Less</b> by Joshua Becker (3-13-21)\
