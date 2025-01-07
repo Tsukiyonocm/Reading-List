@@ -70,6 +70,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Age of Ash</b> by Daniel Abraham (10-19-22)\
 <b>All Systems Red</b> by Martha Wells (9-9-22)\
 <b>Bedtime Stories</b> by Russel Smeaton (2-15-21)\
+<b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25)\
 <b>Brave New World</b> by Aldous Huxley (11-25-21)\
 <b>Cadaver: Book 1</b> by Nick Clause (8-27-24)\
 <b>Canticle</b> by R. A. Salvatore (11-22-22)\
