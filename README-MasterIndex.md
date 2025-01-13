@@ -58,6 +58,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The True Story of the Christmas Truce</b> by Anthony Richards (2/19/23)\
 <b>Typhoid Mary</b> by Anthony Bourdain (1-17-22)\
 <b>Ultralearning</b> by Scott H. Young (4-12-20)\
+<b>Under a White Sky</b> by Elizabeth Kolbert (1-13-25)\
 <b>The Vanishing Face of Gaia</b> by James Lovelock (4-21-23)\
 <b>The War On Science</b> by Shawn Otto (4-1-22)\
 <b>What Unites Us</b> by Dan Rather (11-20-22)\

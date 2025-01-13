@@ -22,10 +22,12 @@ is quick to point out that some of the worst things said about Mengele is largel
 evidence that some of them happened. That said, there does look to be ample evidence into his work with twins and verifying 
 what happened to them as they both died at same time. The second half of the book focuses on his run from Germany and life 
 in South America while in hiding and ultmately the search for him and trying to prove his death. Overall, the book was fascinating
- though the chapters that details the events after what ultimately happened after his death was a bit slow and not as interesting. 
- That said, the final chapter talking about the first and probably only meeting between Josef and his son Rolf. Here we see that 
- Josef was unrepentant and refused to see how everything he did was a bad thing. Lastly, just how someone was able to coldly look 
- thru the groups of people and see not a person, but without any emotion choose thousands for immediate death.
+though the chapters that details the events after what ultimately happened after his death was a bit slow and not as interesting. 
+That said, the final chapter talking about the first and probably only meeting between Josef and his son Rolf. Here we see that 
+Josef was unrepentant and refused to see how everything he did was a bad thing. Lastly, just how someone was able to coldly look 
+thru the groups of people and see not a person, but without any emotion choose thousands for immediate death.
+
+2.<b>Under a White Sky</b> by Elizabeth Kolbert (1-13-25) - This book delves into mans propensity to try to solve problems via either natural or unnatural means. What I mean by this is for instance brings bugs into a environment that is not normally a host to those bugs in order to combat some other unnatural thing in the area. Think invasive species that are brought in to combat another invasive species of animal or plant. The book talks about carp that was brought in from China for instance which were brought in to help combat an invasive algea bloom. These carp though became such a dominant force in the waters that they out competted other fish causing many to go extinct. Other chapters go for more of our technical solutions to problems we brought on us because of our technical and industrial growth. For instance, rising water levels because of the increase in worldwide temprature, the bleaching of the reefs, and ice melting on the arctic and antarctic ice sheets. Among the solutions that is being proposed is to use machines to pull carbon out of the air in order to lower CO2 concentration, spraying an aerosol into the sky in order to reflect sunlight back to space, engineering coral species to be able to more hardy via gene editing and reintroducing them into the oceans, to name a few. The book was interesting and ended at the outset of the Covid pandemic where one again we were being forced to react to an event that is largely more at risk to happening because of our infringing into more and more habitats around the world.
 
 ### Fiction
 1. <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25) - I enjoyed revisiting the world of the Lord of the Rings, but I did not really
@@ -38,10 +40,10 @@ wrote in his life.
 
 ### Currently Reading
 
-1. Under a White Sky by Elizabeth Kolbert
+1. Four Lost Cities by Annalee Newitz
 2. Sea of Tranquility by Emily St. John Mandel
 
-### Current Book Completed Count as of 1/7/25
+### Current Book Completed Count as of 1/13/25
 
-Non-fiction - 1\
+Non-fiction - 2\
 Fiction - 1
