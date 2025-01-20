@@ -104,6 +104,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Planetfall</b> by Emma Newman (7-9-22)\
 <b>Recursion</b> by Blake Crouch (2/21/23)\
 <b>The Restaurant at the End of the Galaxy</b> by Douglas Adams (1-16-22)\
+<b>Sea of Tranquility</b> by Emily St. John Mandel (1-18-25)\
 <b>Seveneves</b> by Neal Stephenson (5-7-21)\
 <b>Slewfoot</b> by Brom (11-20-24)\
 <b>A Thousand Pieces of You</b> by Claudia Gray (5-1-24)\

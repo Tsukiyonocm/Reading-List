@@ -38,12 +38,14 @@ same fashion as the Lord of The Rings, but alas I was disappointed with this. Ov
 of it, I just wish the rest of the book would have been a continous story, and not just the variations of the story that the author
 wrote in his life.
 
+<b>Sea of Tranquility</b> by Emily St. John Mandel (1-18-25) - This was a suprising read honestly. It sort of reminds of a couple of Blake Crouch's books which honestly is honor. The story takes into account time travel, various characters who are connected by a event in time. The main character is charged with investigating the connection between these events and this leads you on a journey. This is honestly a simple story but its enjoyable. I can highly recommend it.
+
 ### Currently Reading
 
 1. Four Lost Cities by Annalee Newitz
-2. Sea of Tranquility by Emily St. John Mandel
+2. Streams of Silver by R. A. Salvatore
 
-### Current Book Completed Count as of 1/13/25
+### Current Book Completed Count as of 1/19/25
 
 Non-fiction - 2\
-Fiction - 1
+Fiction - 2
