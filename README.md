@@ -29,6 +29,8 @@ thru the groups of people and see not a person, but without any emotion choose t
 
 2. <b>Under a White Sky</b> by Elizabeth Kolbert (1-13-25) - This book delves into mans propensity to try to solve problems via either natural or unnatural means. What I mean by this is for instance brings bugs into a environment that is not normally a host to those bugs in order to combat some other unnatural thing in the area. Think invasive species that are brought in to combat another invasive species of animal or plant. The book talks about carp that was brought in from China for instance which were brought in to help combat an invasive algea bloom. These carp though became such a dominant force in the waters that they out competted other fish causing many to go extinct. Other chapters go for more of our technical solutions to problems we brought on us because of our technical and industrial growth. For instance, rising water levels because of the increase in worldwide temprature, the bleaching of the reefs, and ice melting on the arctic and antarctic ice sheets. Among the solutions that is being proposed is to use machines to pull carbon out of the air in order to lower CO2 concentration, spraying an aerosol into the sky in order to reflect sunlight back to space, engineering coral species to be able to more hardy via gene editing and reintroducing them into the oceans, to name a few. The book was interesting and ended at the outset of the Covid pandemic where one again we were being forced to react to an event that is largely more at risk to happening because of our infringing into more and more habitats around the world.
 
+3. <b>Four Lost Cities: A Secret History of the Urban Age</b> by Annalee Newitz (2-5-25) - This book delved a bit into the lost cities of Angkor, Cahokia, Catalhoyuk and Pompeii. Of these most people are only going to be familiar with Pompeii. My personal interest was in Cahokia as it was centered where I spent most of my youth and I honestly knew little about them. While the book wasn't a deep dive into any of them it did go a bit into how the cities arose and how they ultimately fell into obscurity. The author talks about how none of these cities are really lost, using Angkor as an example, it was still being used to some extent just about 100 years ago. Catalhoyuk, which is largely thought to be the first city ever in human evolution took centuries before it was fully empty. Those people were still in the area but are assumed to have largely moved to smaller settlements in the area. Cahokia its is largely assumed was a melting pot of the various tribes in the larger Mississippian culture bringing in people from as far south as Louisiana. Overall, the book was quite interesting if not as much as a deep delving as I was thinking it would be.
+
 ### Fiction
 1. <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25) - I enjoyed revisiting the world of the Lord of the Rings, but I did not really
 enjoy reading this story. So the story was broken up into chapters and each chapter was a slightly different retelling of the same
@@ -42,10 +44,10 @@ wrote in his life.
 
 ### Currently Reading
 
-1. Four Lost Cities by Annalee Newitz
+1. Temples, Tombs and Heiroglyphs by Barbara Mertz
 2. Streams of Silver by R. A. Salvatore
 
-### Current Book Completed Count as of 1/19/25
+### Current Book Completed Count as of 2/6/25
 
-Non-fiction - 2\
+Non-fiction - 3\
 Fiction - 2
