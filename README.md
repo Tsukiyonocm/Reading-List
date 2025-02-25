@@ -40,14 +40,21 @@ same fashion as the Lord of The Rings, but alas I was disappointed with this. Ov
 of it, I just wish the rest of the book would have been a continous story, and not just the variations of the story that the author
 wrote in his life.
 
-<b>Sea of Tranquility</b> by Emily St. John Mandel (1-18-25) - This was a suprising read honestly. It sort of reminds of a couple of Blake Crouch's books which honestly is honor. The story takes into account time travel, various characters who are connected by a event in time. The main character is charged with investigating the connection between these events and this leads you on a journey. This is honestly a simple story but its enjoyable. I can highly recommend it.
+2. <b>Sea of Tranquility</b> by Emily St. John Mandel (1-18-25) - This was a suprising read honestly. It sort of reminds of a couple of 
+Blake Crouch's books which honestly is honor. The story takes into account time travel, various characters who are connected by a 
+event in time. The main character is charged with investigating the connection between these events and this leads you on a journey. 
+This is honestly a simple story but its enjoyable. I can highly recommend it.
+
+3. <b>Streams of Silver</b> by R. A Salvatore (2-23-25) - This is the 5th book in the Drizzt saga of books. For myself this is a reread 
+as I had read this book many years ago and am going back to read it again. All around it kept my interest the same as it did the first
+time. This story has everything that I have come to expect from a fantasy novel. Great characters, great settings, good enemies and just enough wit to keep it funny as well. Overall there is not much more to say about this story outside of that its one of the few stories I have read multiple times now which should tell you everything you need to know about it.
 
 ### Currently Reading
 
 1. Temples, Tombs and Heiroglyphs by Barbara Mertz
-2. Streams of Silver by R. A. Salvatore
+2. Ten Thousand Skies Above You by Claudia Gray
 
-### Current Book Completed Count as of 2/6/25
+### Current Book Completed Count as of 2/24/25
 
 Non-fiction - 3\
-Fiction - 2
+Fiction - 3
