@@ -31,6 +31,8 @@ thru the groups of people and see not a person, but without any emotion choose t
 
 3. <b>Four Lost Cities: A Secret History of the Urban Age</b> by Annalee Newitz (2-5-25) - This book delved a bit into the lost cities of Angkor, Cahokia, Catalhoyuk and Pompeii. Of these most people are only going to be familiar with Pompeii. My personal interest was in Cahokia as it was centered where I spent most of my youth and I honestly knew little about them. While the book wasn't a deep dive into any of them it did go a bit into how the cities arose and how they ultimately fell into obscurity. The author talks about how none of these cities are really lost, using Angkor as an example, it was still being used to some extent just about 100 years ago. Catalhoyuk, which is largely thought to be the first city ever in human evolution took centuries before it was fully empty. Those people were still in the area but are assumed to have largely moved to smaller settlements in the area. Cahokia its is largely assumed was a melting pot of the various tribes in the larger Mississippian culture bringing in people from as far south as Louisiana. Overall, the book was quite interesting if not as much as a deep delving as I was thinking it would be.
 
+4. <b>Temples, Tombs & Heiroglyps</b> by Barbara Mertz (3-5-25) - Honestly this was a bit intense but also fascinating really. The book is essentially going thru the entire history of ancient Egypt from their pre-history to the final fall of the kingdom to Rome after Cleopatra. The author points out various aspects of history where they really know next to nothing. For instance, the know more about the pre-dynasty period then I believe they do of the second dynasty. She wrote about how various pharoahs, Amenhotep III being a prime example, changed the god that was primary to the egyptian people through the years. Talked about how the tombs were robbed and the specukation on how the various figures thru antiquity tried to combat this. The book did not go into to much depth on much, but it was an interesting read for someone who has an interest in Egyptian history and just wants to learn a bit about everything.
+
 ### Fiction
 1. <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25) - I enjoyed revisiting the world of the Lord of the Rings, but I did not really
 enjoy reading this story. So the story was broken up into chapters and each chapter was a slightly different retelling of the same
@@ -51,10 +53,10 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 ### Currently Reading
 
-1. Temples, Tombs and Heiroglyphs by Barbara Mertz
+1. Hitlers First Hundred Days by Peter Fritzsche
 2. Ten Thousand Skies Above You by Claudia Gray
 
-### Current Book Completed Count as of 2/24/25
+### Current Book Completed Count as of 3/6/25
 
-Non-fiction - 3\
+Non-fiction - 4\
 Fiction - 3
