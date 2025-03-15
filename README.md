@@ -51,12 +51,14 @@ This is honestly a simple story but its enjoyable. I can highly recommend it.
 as I had read this book many years ago and am going back to read it again. All around it kept my interest the same as it did the first
 time. This story has everything that I have come to expect from a fantasy novel. Great characters, great settings, good enemies and just enough wit to keep it funny as well. Overall there is not much more to say about this story outside of that its one of the few stories I have read multiple times now which should tell you everything you need to know about it.
 
+4. <b>Ten Thousand Skies Above You</b> by Claudia Gray (3-14-25) - This was the second book in the Firebird series of books by Claudia Gray. This picks up soon after the events of the first book where we find Margaurite having to search for the pieces of Paul through the various alternate realities that the firebird device allows them to travel through. In this book you get to find out the true people that are behind the events and also get to revisit some of the events of the first book later in the timeline. Overall this continues on me really liking the way the author builds the characters relationships and just the world building that goes into it. I look forward to reading the final book in the series in the near future. A must read for sure.
+
 ### Currently Reading
 
 1. Hitlers First Hundred Days by Peter Fritzsche
-2. Ten Thousand Skies Above You by Claudia Gray
+2. Star Wars: The High Republic - Quest for the Hidden City by George Mann
 
 ### Current Book Completed Count as of 3/6/25
 
 Non-fiction - 4\
-Fiction - 3
+Fiction - 4

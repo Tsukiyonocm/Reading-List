@@ -109,6 +109,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Sea of Tranquility</b> by Emily St. John Mandel (1-18-25)\
 <b>Seveneves</b> by Neal Stephenson (5-7-21)\
 <b>Slewfoot</b> by Brom (11-20-24)\
+<b>Ten Thousand Skies Above You</b> by Claudia Gray (3-14-25)\
 <b>A Thousand Pieces of You</b> by Claudia Gray (5-1-24)\
 <b>The Traitor Baru Cormorant</b> by Seth Dickinson (3/24/23)\
 <b>Upgrade</b> by Blake Crouch (4-12-24)\
