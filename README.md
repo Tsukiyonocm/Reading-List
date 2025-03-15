@@ -58,7 +58,7 @@ time. This story has everything that I have come to expect from a fantasy novel.
 1. Hitlers First Hundred Days by Peter Fritzsche
 2. Star Wars: The High Republic - Quest for the Hidden City by George Mann
 
-### Current Book Completed Count as of 3/6/25
+### Current Book Completed Count as of 3/15/25
 
 Non-fiction - 4\
 Fiction - 4
