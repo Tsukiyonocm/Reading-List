@@ -53,12 +53,14 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 4. <b>Ten Thousand Skies Above You</b> by Claudia Gray (3-14-25) - This was the second book in the Firebird series of books by Claudia Gray. This picks up soon after the events of the first book where we find Margaurite having to search for the pieces of Paul through the various alternate realities that the firebird device allows them to travel through. In this book you get to find out the true people that are behind the events and also get to revisit some of the events of the first book later in the timeline. Overall this continues on me really liking the way the author builds the characters relationships and just the world building that goes into it. I look forward to reading the final book in the series in the near future. A must read for sure.
 
+5. <b>Star Wars: The High Republic - Quest for the Hidden City</b> by George Mann (3-30-25) - Another entry into the Star Wars High Republic series. Overall another solid entry, though I just recently found out that this Phase 2 lineup as books are sort of prequels setting up events for the continuation of Phase 1's storyline. This one has us on a planet with a species which sort of sound like giant sentient praying mantisis. The species asked for help because they were no longer able to mine their neighboring planet to get ore for energy because of a disease that infected them when exposed. The pathfinder crews that initially were there to help came up missing on the other planet and were able to get a last second message to another crew. Overall the story was good, sort of simple but still interesting enough. Im curious to see how everything plays out in the future and see if I see any comparisons in this book to a future story arc. 
+
 ### Currently Reading
 
 1. Hitlers First Hundred Days by Peter Fritzsche
-2. Star Wars: The High Republic - Quest for the Hidden City by George Mann
+2. Star Wars: The High Republic - Convergence by Zoraida Cordova
 
-### Current Book Completed Count as of 3/15/25
+### Current Book Completed Count as of 4/1/25
 
 Non-fiction - 4\
-Fiction - 4
+Fiction - 5
