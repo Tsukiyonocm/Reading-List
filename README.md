@@ -33,6 +33,8 @@ thru the groups of people and see not a person, but without any emotion choose t
 
 4. <b>Temples, Tombs & Heiroglyps</b> by Barbara Mertz (3-5-25) - Honestly this was a bit intense but also fascinating really. The book is essentially going thru the entire history of ancient Egypt from their pre-history to the final fall of the kingdom to Rome after Cleopatra. The author points out various aspects of history where they really know next to nothing. For instance, the know more about the pre-dynasty period then I believe they do of the second dynasty. She wrote about how various pharoahs, Amenhotep III being a prime example, changed the god that was primary to the egyptian people through the years. Talked about how the tombs were robbed and the specukation on how the various figures thru antiquity tried to combat this. The book did not go into to much depth on much, but it was an interesting read for someone who has an interest in Egyptian history and just wants to learn a bit about everything.
 
+5. <b>Hitler's First Hundred Days</b> by Peter Fritzsche (4-20-25) - Overall this was an informative read though wasnt exacty what I was thinking it would be (seems to be a theme recently with what I am reading). So the book 100% does delve into the first 100 days after Adolf Hitler becomes chancellor of Germany and the Third Reich begins. In the process though it continues and delves a bit more into the future impacts of those policies over the following years and how things played out. Talks a bit about the Brown Shirts and how they strong armed the citizens and in many ways killed off the competitors. Talks about the various policies that was implemented, the silencing of descent and enlisting the citzenry to report on those who might not be fully loyal. Removing rights from those just because their grandparents had slightly to much percentage of bad blood in them. The book itself was not really anything I hadnt heard or read elsewhere, but I think the most startling fact that can be taken from this book was just how quickly things changed in those days and how more or less OK everyone was with it. The average citizen largely played along or fully bought into the new regime without so much as a sidestep in their day to day lives. Using radio they were able to make the populace believe that things were improving even when all evidence to the contrary could be seen daily. Another interesting note was how similar the leadership of the United States and Germany was. How both leaders could have possibly be interchanged (Hitler in US and Roosevelt in German) and the timeline of each country would have been different. Roosevelt chose to lead with a note of togetherness and unity. Where as Hitler and his government chose to tear apart and divide.
+
 ### Fiction
 1. <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25) - I enjoyed revisiting the world of the Lord of the Rings, but I did not really
 enjoy reading this story. So the story was broken up into chapters and each chapter was a slightly different retelling of the same
@@ -57,10 +59,10 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 ### Currently Reading
 
-1. Hitlers First Hundred Days by Peter Fritzsche
+1. How Democracies Die by Steven Levitsky and Daniel Ziblatt
 2. Star Wars: The High Republic - Convergence by Zoraida Cordova
 
-### Current Book Completed Count as of 4/1/25
+### Current Book Completed Count as of 4/20/25
 
-Non-fiction - 4\
+Non-fiction - 5\
 Fiction - 5
