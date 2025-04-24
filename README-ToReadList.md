@@ -63,25 +63,25 @@
 
 ## Fiction - Drizzt
 
-<b>Servant of the Shard</b> by R. A. Salvatore
-<b>Road of the Patriarch</b> by R. A. Salvatore
-<b>The Halflings Gem</b> by R. A. Salvatore
-<b>Promise of the Witchking</b> by R. A. Salvatore
-<b>Hero</b> by R. A. Salvatore
-<b>Siege of Darkness</b> by R. A. Salvatore
-<b>The Thousand Orcs</b> by R. A. Salvatore
-<b>The Legacy</b> by R. A. Salvatore
-<b>The Spine of the World</b> by R. A. Salvatore
-<b>The Orc King</b> by R. A. Salvatore
-<b>Passage to Dawn</b> by R. A. Salvatore
-<b>Glaciers Edge</b> by R. A. Salvatore
-<b>Lloths Warriors</b> by R. A. Salvatore
-<b>Archmage</b> by R. A. Salvatore
-<b>Gauntlgrym</b> by R. A. Salvatore
-<b>Starless Night</b> by R. A. Salvatore
-<b>Night of the Hunters</b> by R. A. Salvatore
-<b>The Silent Blade</b> by R. A. Salvatore
-<b>The Companions</b> by R. A. Salvatore
+<b>Servant of the Shard</b> by R. A. Salvatore\
+<b>Road of the Patriarch</b> by R. A. Salvatore\
+<b>The Halflings Gem</b> by R. A. Salvatore\
+<b>Promise of the Witchking</b> by R. A. Salvatore\
+<b>Hero</b> by R. A. Salvatore\
+<b>Siege of Darkness</b> by R. A. Salvatore\
+<b>The Thousand Orcs</b> by R. A. Salvatore\
+<b>The Legacy</b> by R. A. Salvatore\
+<b>The Spine of the World</b> by R. A. Salvatore\
+<b>The Orc King</b> by R. A. Salvatore\
+<b>Passage to Dawn</b> by R. A. Salvatore\
+<b>Glaciers Edge</b> by R. A. Salvatore\
+<b>Lloths Warriors</b> by R. A. Salvatore\
+<b>Archmage</b> by R. A. Salvatore\
+<b>Gauntlgrym</b> by R. A. Salvatore\
+<b>Starless Night</b> by R. A. Salvatore\
+<b>Night of the Hunters</b> by R. A. Salvatore\
+<b>The Silent Blade</b> by R. A. Salvatore\
+<b>The Companions</b> by R. A. Salvatore\
 <b>The Ghost King</b> by R. A. Salvatore
 
 ## Fiction - Star Wars
