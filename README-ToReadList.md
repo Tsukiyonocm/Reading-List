@@ -11,10 +11,12 @@
 <b>Cadaver: Book 7</b> By Nick Clausen\
 <b>Conceal Dont Feel</b> by Jen Calonita\
 <b>Darkwalker of Moonshae</b> by Douglas Niles\
+<b>Dawnshard</b> by Brandon Sanderson\
 <b>Dawn of the Dead</b> by George Romero\
 <b>Dead Space: Martyr</b> By B. K. Evenson\
 <b>Dragons of Deceit</b> by Margaret Weis & Tracy Hackman\
 <b>Dune</b> Frank Herbert\
+<b>Edgedancer</b> by Brandon Sanderson\
 <b>Fire is Orange</b> by Scott Sigler\
 <b>Ghost Station</b> by S. A. Barnes\
 <b>Gideon The Ninth</b> by Tamsyn Muir\
