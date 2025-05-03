@@ -62,9 +62,9 @@ time. This story has everything that I have come to expect from a fantasy novel.
 ### Currently Reading
 
 1. How Democracies Die by Steven Levitsky and Daniel Ziblatt
-2. Star Wars: The High Republic - Convergence by Zoraida Cordova
+2. Dead Space Martyr by B. K. Evenson
 
-### Current Book Completed Count as of 4/20/25
+### Current Book Completed Count as of 5/3/25
 
 Non-fiction - 5\
-Fiction - 5
+Fiction - 6
