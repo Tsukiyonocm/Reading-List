@@ -35,6 +35,8 @@ thru the groups of people and see not a person, but without any emotion choose t
 
 5. <b>Hitler's First Hundred Days</b> by Peter Fritzsche (4-20-25) - Overall this was an informative read though wasnt exacty what I was thinking it would be (seems to be a theme recently with what I am reading). So the book 100% does delve into the first 100 days after Adolf Hitler becomes chancellor of Germany and the Third Reich begins. In the process though it continues and delves a bit more into the future impacts of those policies over the following years and how things played out. Talks a bit about the Brown Shirts and how they strong armed the citizens and in many ways killed off the competitors. Talks about the various policies that was implemented, the silencing of descent and enlisting the citzenry to report on those who might not be fully loyal. Removing rights from those just because their grandparents had slightly to much percentage of bad blood in them. The book itself was not really anything I hadnt heard or read elsewhere, but I think the most startling fact that can be taken from this book was just how quickly things changed in those days and how more or less OK everyone was with it. The average citizen largely played along or fully bought into the new regime without so much as a sidestep in their day to day lives. Using radio they were able to make the populace believe that things were improving even when all evidence to the contrary could be seen daily. Another interesting note was how similar the leadership of the United States and Germany was. How both leaders could have possibly be interchanged (Hitler in US and Roosevelt in German) and the timeline of each country would have been different. Roosevelt chose to lead with a note of togetherness and unity. Where as Hitler and his government chose to tear apart and divide.
 
+6. <b>How Democracies Die</b> by Steven Levitsky and Daniel Ziblatt (5-4-25) - Given the current political climate this was an interesting read. The authors go into a skimming of how various democracies that have died over the years and the events that have lead to it. The main is the polairization that happens between the various factions, the fair play rules that get broken between the sides and just in general a complete collapse of civility between the parties invovled. Talks about about Nazis, Pinochet, Chavez, and Erdogan among many other leaders. It also does talk about the United States in particular with the poliarization and treating the other side as the enemy instead of another group of people who have the best interest of the country in heart. They do talk in depth about the factors that have lead us to this point, including the escalation that has come about since President Trump first started to run for office back in 2012. The breakdown of calling the media fake, denying that there is fair election and calling them into question, stating that the other side is criminals and should be tried for treason. Among other things. Overall it paints a fairly bleak picture of the way things are going, especially given that this was written back in 2017 and things have only escalated more since then with largely both sides of the political aisle moving to the fringes and not trying to reach common ground.
+
 ### Fiction
 1. <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25) - I enjoyed revisiting the world of the Lord of the Rings, but I did not really
 enjoy reading this story. So the story was broken up into chapters and each chapter was a slightly different retelling of the same
@@ -61,10 +63,10 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 ### Currently Reading
 
-1. How Democracies Die by Steven Levitsky and Daniel Ziblatt
+1. The Radium Girls by Kate Moore
 2. Dead Space Martyr by B. K. Evenson
 
-### Current Book Completed Count as of 5/3/25
+### Current Book Completed Count as of 5/4/25
 
-Non-fiction - 5\
+Non-fiction - 6\
 Fiction - 6
