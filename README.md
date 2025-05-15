@@ -37,6 +37,8 @@ thru the groups of people and see not a person, but without any emotion choose t
 
 6. <b>How Democracies Die</b> by Steven Levitsky and Daniel Ziblatt (5-4-25) - Given the current political climate this was an interesting read. The authors go into a skimming of how various democracies that have died over the years and the events that have lead to it. The main is the polairization that happens between the various factions, the fair play rules that get broken between the sides and just in general a complete collapse of civility between the parties invovled. Talks about about Nazis, Pinochet, Chavez, and Erdogan among many other leaders. It also does talk about the United States in particular with the poliarization and treating the other side as the enemy instead of another group of people who have the best interest of the country in heart. They do talk in depth about the factors that have lead us to this point, including the escalation that has come about since President Trump first started to run for office back in 2012. The breakdown of calling the media fake, denying that there is fair election and calling them into question, stating that the other side is criminals and should be tried for treason. Among other things. Overall it paints a fairly bleak picture of the way things are going, especially given that this was written back in 2017 and things have only escalated more since then with largely both sides of the political aisle moving to the fringes and not trying to reach common ground.
 
+7. <b>The Radium Girls</b> by Kate Moore (5-15-25) - This was a fantastic read about an event I knew nothing about for the longest time. The book is written in a unique fashion where it almost reads like a standard story but is also a documentary. It throws the facts but uses a lot of phrasing that makes you just think you are reading a story. The story takes place starting in the 1910s when the women are starting to work in dial factories painting with a radium based paint that glows in the dark. Their method of painting was to put the brush tips in their mouth to get that fine point and then to paint these dials which were sometimes centimeters in size. In the end though, this built up an amount of radiation in their blood that lead to their teeth falling out, their jaws breaking apart and falling out, various cancers and various other health maladies. Its a heart breaking read really seeing this hopelessness building up to the end. Can't recommend this book enough.
+
 ### Fiction
 1. <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25) - I enjoyed revisiting the world of the Lord of the Rings, but I did not really
 enjoy reading this story. So the story was broken up into chapters and each chapter was a slightly different retelling of the same
@@ -63,10 +65,10 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 ### Currently Reading
 
-1. The Radium Girls by Kate Moore
+1. The AI Revolution in Medicine: GPT4 and Beyon by Peter Lee
 2. Dead Space Martyr by B. K. Evenson
 
-### Current Book Completed Count as of 5/4/25
+### Current Book Completed Count as of 5/15/25
 
-Non-fiction - 6\
+Non-fiction - 7\
 Fiction - 6

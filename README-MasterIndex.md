@@ -52,6 +52,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Planets</b> by Andrew Cohen and Professor Bryan Cox (1-21-23)\
 <b>Punished by Rewards</b> by Alfie Kohn (11-29-19)\
 <b>Quiet</b> by Susan Cain (1-10-22)\
+<b>The Radium Girls</b> by Kate Moore (5-15-25)\
 <b>The Revenge of Gaia</b> by James Lovelock (11-11-20)\
 <b>The Righteous Mind</b> by Jonathan Haidt (7-26-21)\
 <b>The Sixth Extinction</b> by Elizabeth Kolbert (9-04-21)\
