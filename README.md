@@ -63,12 +63,14 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 6. <b>Star Wars: The High Republic - Convergence</b> by Zoraida Cordova (5-2-25) - This was actually one of the better stories that have come out of the High Repulic's wave two books. The characters were well written and overall I felt the story and the growth of the characters was quite good as well. The basics of the story is that two planets have been at war for decades or centuries at this point. Due to circumstances some jedi end up on the planet and then the whole story revolves around trying to end the war thats destroyed both planets. I found to really like Gella the Jedi and the two young monarchs from the planets the most. Overall I still enjoy this whole story line though I do still find overall a disconnect between wave 1 and the wave 2 books.
 
+7. <b>Dead Space Martyr</b> by B. K. Evenson (6-2-25) - I have enjoyed this book since I first read it way back on its original release in like 2010. The story takes place over the Chixulub crater in the Gulf of Mexico, the same crater that was created from the death of the dinosaurs. Inside this crater they find this clearly created object called a marker. During all this the marker was giving off some sort of signal which appears to be driving people slowly insane or homicidal. Over the course of the story we get to see the situation devolve and then a great ending to the story as well. As a huge fan of the game this book is fantastic and highly recommend.
+
 ### Currently Reading
 
 1. The AI Revolution in Medicine: GPT4 and Beyon by Peter Lee
-2. Dead Space Martyr by B. K. Evenson
+2. Cadaver Book 2 by Nick Clausen
 
-### Current Book Completed Count as of 5/15/25
+### Current Book Completed Count as of 6/2/25
 
 Non-fiction - 7\
-Fiction - 6
+Fiction - 7
