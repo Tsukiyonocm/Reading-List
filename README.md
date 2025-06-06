@@ -39,6 +39,8 @@ thru the groups of people and see not a person, but without any emotion choose t
 
 7. <b>The Radium Girls</b> by Kate Moore (5-15-25) - This was a fantastic read about an event I knew nothing about for the longest time. The book is written in a unique fashion where it almost reads like a standard story but is also a documentary. It throws the facts but uses a lot of phrasing that makes you just think you are reading a story. The story takes place starting in the 1910s when the women are starting to work in dial factories painting with a radium based paint that glows in the dark. Their method of painting was to put the brush tips in their mouth to get that fine point and then to paint these dials which were sometimes centimeters in size. In the end though, this built up an amount of radiation in their blood that lead to their teeth falling out, their jaws breaking apart and falling out, various cancers and various other health maladies. Its a heart breaking read really seeing this hopelessness building up to the end. Can't recommend this book enough.
 
+8. <b>The AI Revolution in Medicine: GPT4 and Beyond</b> by Peter Lee (6-5-25) - This was a very interesting read even if it did not cover all the stuff that I thought it would. While the book does go into a bit on how AI will be involved with the actual diagnosis and looking into testing for your ailements, it seemed more to focus on how it will help your average individual more so. For instance, how AI can be used to get a better understanding of what your blood work is telling you. In addition, especially early on, it could be used more to help clear up some of the overwork that is in the medical field by picking up and processing the paperwork portion of doctors visits and freeing up the doctors and nurses time for better care of the patient. The book also did focus on a good bit of the ethical side of using AI and taking the stance that it should have the patient involved in the decision making process as well for transparency. I had hoped that this book would delve more into how it can be used to hasten diagnosis or looking into test results and pulling a diagnosis out of a hat years earlier then otherwise possible, but still was not disappointed.
+
 ### Fiction
 1. <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25) - I enjoyed revisiting the world of the Lord of the Rings, but I did not really
 enjoy reading this story. So the story was broken up into chapters and each chapter was a slightly different retelling of the same
@@ -67,10 +69,10 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 ### Currently Reading
 
-1. The AI Revolution in Medicine: GPT4 and Beyon by Peter Lee
+1. Asteroid Hunters by Carrie Nugent
 2. Cadaver Book 2 by Nick Clausen
 
-### Current Book Completed Count as of 6/2/25
+### Current Book Completed Count as of 6/6/25
 
-Non-fiction - 7\
+Non-fiction - 8\
 Fiction - 7

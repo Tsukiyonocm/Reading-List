@@ -9,6 +9,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>A Crack in Creation: Gene Editing and the Unthinkable Power to Control Evolution</b> by Jennifer Doudna (1-15-20)\
 <b>A Rough Ride to the Future</b> by James Lovelock (8-21-24)\
 <b>AI 2041: Ten Visions of Our Future</b> by Kai-fu Lee and Chen Qiufan (3-12-24)\
+<b>The AI Revolution in Medicine: GPT4 and Beyond</b> by Peter Lee (6-5-25)\
 <b>The Anatomy of Fascism</b> by Robert O. Paxton (5-16-24)\
 <b>Archaeology From Space</b> by Sarah Parcak (12-21-19)\
 <b>Astrophysics for People in a Hurry</b> by Neil DeGrasse Tyson (1-26-20)\
