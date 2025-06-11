@@ -41,6 +41,8 @@ thru the groups of people and see not a person, but without any emotion choose t
 
 8. <b>The AI Revolution in Medicine: GPT4 and Beyond</b> by Peter Lee (6-5-25) - This was a very interesting read even if it did not cover all the stuff that I thought it would. While the book does go into a bit on how AI will be involved with the actual diagnosis and looking into testing for your ailements, it seemed more to focus on how it will help your average individual more so. For instance, how AI can be used to get a better understanding of what your blood work is telling you. In addition, especially early on, it could be used more to help clear up some of the overwork that is in the medical field by picking up and processing the paperwork portion of doctors visits and freeing up the doctors and nurses time for better care of the patient. The book also did focus on a good bit of the ethical side of using AI and taking the stance that it should have the patient involved in the decision making process as well for transparency. I had hoped that this book would delve more into how it can be used to hasten diagnosis or looking into test results and pulling a diagnosis out of a hat years earlier then otherwise possible, but still was not disappointed.
 
+9. <b>Asteroid Hunters</b> by Carrie Nugent (6-11-25) - This book was either based on a TED talk or its just marketed as part of Ted Talks. Either way, was somewhat interesting though it didnt go to indepth into much of the topics at least to what I didnt already know. Talks about how the Astronomers use telescopes to find asteroids, the history of when it began, and the processes they use now to find them easier and quicker. It also did delve a bit into the topic of what would happen if an asteroid was on its way to hit the earth, as well as, going into some about the different ways that we can currently deflect that asteroid given enough time.
+
 ### Fiction
 1. <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25) - I enjoyed revisiting the world of the Lord of the Rings, but I did not really
 enjoy reading this story. So the story was broken up into chapters and each chapter was a slightly different retelling of the same
@@ -69,10 +71,10 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 ### Currently Reading
 
-1. Asteroid Hunters by Carrie Nugent
+1. In The Realm of Hungry Ghosts by Gabor Mate, MD
 2. Cadaver Book 2 by Nick Clausen
 
-### Current Book Completed Count as of 6/6/25
+### Current Book Completed Count as of 6/11/25
 
-Non-fiction - 8\
+Non-fiction - 9\
 Fiction - 7

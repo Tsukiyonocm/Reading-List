@@ -12,6 +12,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The AI Revolution in Medicine: GPT4 and Beyond</b> by Peter Lee (6-5-25)\
 <b>The Anatomy of Fascism</b> by Robert O. Paxton (5-16-24)\
 <b>Archaeology From Space</b> by Sarah Parcak (12-21-19)\
+<b>Asteroid Hunters</b> by Carrie Nugent (6-11-25)\
 <b>Astrophysics for People in a Hurry</b> by Neil DeGrasse Tyson (1-26-20)\
 <b>Auschwitz</b> by Miklos Nyiszali (10-16-23)\
 <b>Bad Blood</b> by John Carreyou (8-12-20)\
