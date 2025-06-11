@@ -81,6 +81,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25)\
 <b>Brave New World</b> by Aldous Huxley (11-25-21)\
 <b>Cadaver: Book 1</b> by Nick Clause (8-27-24)\
+<b>Cadaver: Book 2</b> by Nick Clausen (6-10-25)\
 <b>Canticle</b> by R. A. Salvatore (11-22-22)\
 <b>Come Closer</b> by Sara Grant (4-12-22)\
 <b>Dark Matter</b> by Blake Crouch (4-28-22)\

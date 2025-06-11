@@ -69,12 +69,14 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 7. <b>Dead Space Martyr</b> by B. K. Evenson (6-2-25) - I have enjoyed this book since I first read it way back on its original release in like 2010. The story takes place over the Chixulub crater in the Gulf of Mexico, the same crater that was created from the death of the dinosaurs. Inside this crater they find this clearly created object called a marker. During all this the marker was giving off some sort of signal which appears to be driving people slowly insane or homicidal. Over the course of the story we get to see the situation devolve and then a great ending to the story as well. As a huge fan of the game this book is fantastic and highly recommend.
 
+8. <b>Cadaver: Book 2</b> by Nick Clausen (6-10-25) - This picked up where the first book ended. Largely starts with one of the main characters breaking out of the government facility camp and making a run for it. In the process we see the zombie infection spread to other areas around them. Overall I felt this wasnt as good of a story as the first book, but it was still interesting enough that I kept reading. It keeps multiple perspectives going just like the first book and overall not much new is learned about most of them. 
+
 ### Currently Reading
 
 1. In The Realm of Hungry Ghosts by Gabor Mate, MD
-2. Cadaver Book 2 by Nick Clausen
+2. Words of Radiance by Brandon Sanderson
 
 ### Current Book Completed Count as of 6/11/25
 
 Non-fiction - 9\
-Fiction - 7
+Fiction - 8
