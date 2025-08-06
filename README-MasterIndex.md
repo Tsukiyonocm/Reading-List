@@ -39,6 +39,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>How We Will Live on Mars</b> by Stephen Petranek (9-27-23)\
 <b>Humankind</b> by Rutger Bregman (2-2-23)\
 <b>I Stooged to Conquer: The Autobiography of the Leader of the Three Stooges</b> by Moe Howard (6-18-24)\
+<b>In The Realm of Hungry Ghosts</b> by Gabor Mate (8-1-25)\
 <b>Insight Meditation: The Practice of Freedom</b> by Joseph Goldstein (11-20-23)\
 <b>Irrationally Predictable</b> by Dan Ariely (11-14-24)\
 <b>Japans Infamous Unit 731</b> by Hal Gold (12-16-22)\

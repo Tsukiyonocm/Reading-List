@@ -43,6 +43,8 @@ thru the groups of people and see not a person, but without any emotion choose t
 
 9. <b>Asteroid Hunters</b> by Carrie Nugent (6-11-25) - This book was either based on a TED talk or its just marketed as part of Ted Talks. Either way, was somewhat interesting though it didnt go to indepth into much of the topics at least to what I didnt already know. Talks about how the Astronomers use telescopes to find asteroids, the history of when it began, and the processes they use now to find them easier and quicker. It also did delve a bit into the topic of what would happen if an asteroid was on its way to hit the earth, as well as, going into some about the different ways that we can currently deflect that asteroid given enough time.
 
+10. <b>In The Realm of Hungry Ghosts</b> by Gabor Mate (8-1-25) - This was a suprisingly interesting read. I intially started reading into this because I had heard about it through a book on Ebola and assumed it was about that. I was wrong. The book talks about additction and in particular the addicts and how the brain is affected. The author has many tales in the book about addicts at his practice where he helps treat people for addiction and provide a better quality of life, without the judgement. He talks about his own issues with addiction, though not of the chemical kind, but about impulsively buying classical music. Talks about how all addictions stem from the same underwriting issues in the human brain, regardless if talking about chemical, alcohol, eating, shopping or anything. Some of the most interesting stuff I read though was in regards to how beneficial assisted injection sites would be for improving not just the quality of life for the addict, but also to improving the quality of life for the neighborhoods that these addicts call home. The lower crime rates, lower levels of disease, the lower level of deaths to overdose the list  can go on and on. I could probably write about this book for a bit but needless to say I find this book incredibly interesting.
+
 ### Fiction
 1. <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25) - I enjoyed revisiting the world of the Lord of the Rings, but I did not really
 enjoy reading this story. So the story was broken up into chapters and each chapter was a slightly different retelling of the same
@@ -73,10 +75,10 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 ### Currently Reading
 
-1. In The Realm of Hungry Ghosts by Gabor Mate, MD
+1. The Dodo by Charles River Editors
 2. Words of Radiance by Brandon Sanderson
 
-### Current Book Completed Count as of 6/11/25
+### Current Book Completed Count as of 8/5/25
 
-Non-fiction - 9\
+Non-fiction - 10\
 Fiction - 8
