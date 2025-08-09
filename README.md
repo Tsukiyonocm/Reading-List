@@ -45,6 +45,8 @@ thru the groups of people and see not a person, but without any emotion choose t
 
 10. <b>In The Realm of Hungry Ghosts</b> by Gabor Mate (8-1-25) - This was a suprisingly interesting read. I intially started reading into this because I had heard about it through a book on Ebola and assumed it was about that. I was wrong. The book talks about additction and in particular the addicts and how the brain is affected. The author has many tales in the book about addicts at his practice where he helps treat people for addiction and provide a better quality of life, without the judgement. He talks about his own issues with addiction, though not of the chemical kind, but about impulsively buying classical music. Talks about how all addictions stem from the same underwriting issues in the human brain, regardless if talking about chemical, alcohol, eating, shopping or anything. Some of the most interesting stuff I read though was in regards to how beneficial assisted injection sites would be for improving not just the quality of life for the addict, but also to improving the quality of life for the neighborhoods that these addicts call home. The lower crime rates, lower levels of disease, the lower level of deaths to overdose the list  can go on and on. I could probably write about this book for a bit but needless to say I find this book incredibly interesting.
 
+11. <b>The Dodo</b> by Charles River Editors (8-7-25) - Ive always been fascinated by the Dodo Bird. Not sure why, but its always been my favorite animal. I originally found this while looking up books about the bird which seemingly is few and far between. Overall this talks about the first written instances of the bird which date back to sometime in the 1500's, the first people landing on the island of Mauritius, and the subsequent last confirmed sighting of it, which dated in the 1660's, though there was uncofirmed sightings for the next 50ish years or so. While the book was short it was an interesting read which did break some of the preconceived ideas of the bird. Mostly the thought that the bird was stupid and to large to walk. The bird were unafraid because they had not seen humans or had an predators on the island previously, so had learned no reason to fear anything. That said, they were shown to have attacked people when first meeting them. Overall the book was a quick interesting read for you if interested in the Dodo Bird. I can highly recommend it and need to look for more books in the future if there any. 
+
 ### Fiction
 1. <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25) - I enjoyed revisiting the world of the Lord of the Rings, but I did not really
 enjoy reading this story. So the story was broken up into chapters and each chapter was a slightly different retelling of the same
@@ -75,10 +77,10 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 ### Currently Reading
 
-1. The Dodo by Charles River Editors
+1. The Coddling off the American Mind by Greg Lukianoff and Jonathan Haidt
 2. Words of Radiance by Brandon Sanderson
 
-### Current Book Completed Count as of 8/5/25
+### Current Book Completed Count as of 8/9/25
 
-Non-fiction - 10\
+Non-fiction - 11\
 Fiction - 8
