@@ -75,12 +75,14 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 8. <b>Cadaver: Book 2</b> by Nick Clausen (6-10-25) - This picked up where the first book ended. Largely starts with one of the main characters breaking out of the government facility camp and making a run for it. In the process we see the zombie infection spread to other areas around them. Overall I felt this wasnt as good of a story as the first book, but it was still interesting enough that I kept reading. It keeps multiple perspectives going just like the first book and overall not much new is learned about most of them. 
 
+9. <b>Words of Radiance</b> by Brandon Sanderson (8-11-25) - Book 2 in the series finally read with a gap of almost 2 years since I finished the first book in the series. This one seems to have to hit the ground running a bit more then the first book in the series felt. Im thinking that since I didnt need to learn all the characers again and I had a idea still of what the original story was that this one seemed more interesting. Even though it took me nearly two months to read, I felt like I couldnt put this down especially towards the second half of the book. The main characters are again Kaladin, Shallen, and Dalinar as they try to stop the events that appear to be coming to of the voidbringers coming back. All around this was a fantastic read and I really need to make sure its not another 2 years before I move on to book three.
+
 ### Currently Reading
 
 1. The Coddling off the American Mind by Greg Lukianoff and Jonathan Haidt
-2. Words of Radiance by Brandon Sanderson
+2. Ready Player Two by Ernest Cline
 
-### Current Book Completed Count as of 8/9/25
+### Current Book Completed Count as of 8/13/25
 
 Non-fiction - 11\
-Fiction - 8
+Fiction - 9

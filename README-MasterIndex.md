@@ -122,11 +122,15 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>A Thousand Pieces of You</b> by Claudia Gray (5-1-24)\
 <b>The Traitor Baru Cormorant</b> by Seth Dickinson (3/24/23)\
 <b>Upgrade</b> by Blake Crouch (4-12-24)\
-<b>The Way of Kings</b> by Brandon Sanderson (7/16/23)\
 <b>Wayward Pines - Pines</b> by Blake Crouch (7/29/23)\
 <b>We Are Here to Hurt Each Other</b> by Paula D Ashe (7-2-24)\
 <b>The Witcher: Baptism of Fire</b> by Andrzej Sapkowski (2/13/23)\
 <b>The Witcher: The Tower of Swallows</b> by Andrezej Sapkowski (6-24-24)
+
+
+### The Stormlight Archive 
+<b>The Way of Kings</b> by Brandon Sanderson (7/16/23)\
+<b>Words of Radiance</b> by Brandon Sanderson (8-11-25)
 
 ### The Legend of Drizzt
 
