@@ -77,12 +77,14 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 9. <b>Words of Radiance</b> by Brandon Sanderson (8-11-25) - Book 2 in the series finally read with a gap of almost 2 years since I finished the first book in the series. This one seems to have to hit the ground running a bit more then the first book in the series felt. Im thinking that since I didnt need to learn all the characers again and I had a idea still of what the original story was that this one seemed more interesting. Even though it took me nearly two months to read, I felt like I couldnt put this down especially towards the second half of the book. The main characters are again Kaladin, Shallen, and Dalinar as they try to stop the events that appear to be coming to of the voidbringers coming back. All around this was a fantastic read and I really need to make sure its not another 2 years before I move on to book three.
 
+10. <b>Ready Player Two</b>> by Ernest Cline (9-1-25) - All around this was an enjoyable book, but felt it was no where near as good as the original was. The overall story starts by the heroes basically one week after the first book ends. All is well and good and then its not. They get access to a device that allows the users to go into the oasis and feel everything as if they were actually there. This leads eventually to the larger story at heart which I dont wish to go to deep into. There is still quite a lot of reference to old 80's music and movies from the range of Prince, Breakfast Club, and Lord of the Rings (obviously 90s or 2000's, but still its older now). Was a good read but just not quite on the same level as the first one was. 
+
 ### Currently Reading
 
 1. The Coddling off the American Mind by Greg Lukianoff and Jonathan Haidt
-2. Ready Player Two by Ernest Cline
+2. Star Wars: The High Republic - The Battle of Jedha by George Mann
 
-### Current Book Completed Count as of 8/13/25
+### Current Book Completed Count as of 9/3/25
 
 Non-fiction - 11\
-Fiction - 9
+Fiction - 10

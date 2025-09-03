@@ -113,6 +113,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Patron Tales</b> by Russell Smeaton  (12-16-22)\
 <b>The Perfect Day</b> by Ira Levin (6-21-21)\
 <b>Planetfall</b> by Emma Newman (7-9-22)\
+<b>Ready Player Two</b>> by Ernest Cline (9-1-25)\
 <b>Recursion</b> by Blake Crouch (2/21/23)\
 <b>The Restaurant at the End of the Galaxy</b> by Douglas Adams (1-16-22)\
 <b>Sea of Tranquility</b> by Emily St. John Mandel (1-18-25)\
