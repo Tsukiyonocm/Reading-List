@@ -47,6 +47,8 @@ thru the groups of people and see not a person, but without any emotion choose t
 
 11. <b>The Dodo</b> by Charles River Editors (8-7-25) - Ive always been fascinated by the Dodo Bird. Not sure why, but its always been my favorite animal. I originally found this while looking up books about the bird which seemingly is few and far between. Overall this talks about the first written instances of the bird which date back to sometime in the 1500's, the first people landing on the island of Mauritius, and the subsequent last confirmed sighting of it, which dated in the 1660's, though there was uncofirmed sightings for the next 50ish years or so. While the book was short it was an interesting read which did break some of the preconceived ideas of the bird. Mostly the thought that the bird was stupid and to large to walk. The bird were unafraid because they had not seen humans or had an predators on the island previously, so had learned no reason to fear anything. That said, they were shown to have attacked people when first meeting them. Overall the book was a quick interesting read for you if interested in the Dodo Bird. I can highly recommend it and need to look for more books in the future if there any. 
 
+12.<b>The Coddling of the American Mind</b> by Greg Lukianoff and Jonathan Haidt (10-2-25) - This book is basically about how american youth are more and more due to how they are being raised are hitting age milestones later in life while also not being able to grow up in the same way young adults were able to in generations past. Currently the country is safer than it has ever been in the last 50 years but there has been a raise in helicopter parenting and an all around fear that the children will suffer anything as small as a minor discomfort if they are outside the vision of an adult. Due to this, once they reach college, they are not able to adapt and deal with anything that can be a minor incovenience or even just someone who thinks differently then then. So we have been seeing outrage and protest which have forced staff to either cancel speechs or even lose their jobs because of what should have been a learning excercise for both parties. This has been an issue for both sides of the political spectrum, thought he issues on the right tend to be different then the outrage on the left. On the right there has been a movement to the far right which has accelerated the issues on the left.
+
 ### Fiction
 1. <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25) - I enjoyed revisiting the world of the Lord of the Rings, but I did not really
 enjoy reading this story. So the story was broken up into chapters and each chapter was a slightly different retelling of the same
@@ -81,10 +83,10 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 ### Currently Reading
 
-1. The Coddling off the American Mind by Greg Lukianoff and Jonathan Haidt
+1. The SS Dirlewanger Brigade: History of the Black Hunters by Christian Ingrao
 2. Star Wars: The High Republic - The Battle of Jedha by George Mann
 
-### Current Book Completed Count as of 9/3/25
+### Current Book Completed Count as of 10/3/25
 
-Non-fiction - 11\
+Non-fiction - 12\
 Fiction - 10
