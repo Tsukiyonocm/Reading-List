@@ -174,6 +174,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Star Wars: Queens Peril</b> by E. K. Johnston (8-7-23)\
 <b>Star Wars: Master & Apprentice</b> by Claudia Gray (2-2-22)
 
+<b>Star Wars: The High Republic - The Battle of Jedha</b> by George Mann (10-4-25)\
 <b>Star Wars: The High Republic - Convergence</b> by Zoraida Cordova (5-2-25)\
 <b>Star Wars: The High Republic - Quest for the Hidden City</b> by George Mann (3-30-25)\
 <b>Star Wars: The High Republic - Path of Deceit</b> by Tessa Gratton and Justina Ireland (8-22-24)\
