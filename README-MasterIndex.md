@@ -62,6 +62,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Righteous Mind</b> by Jonathan Haidt (7-26-21)\
 <b>The Sixth Extinction</b> by Elizabeth Kolbert (9-04-21)\
 <b>Spillover</b> by David Quammen (11-6-21)\
+<b>The SS Dirlewanger Brigade: History of the Black Hunters</b> by Christian Ingrao (11-25-25)
 <b>Temples, Tombs & Heiroglyps</b> by Barbara Mertz (3-5-25)\
 <b>This is not Propaganda: Adventures in the War Against Reality</b> by Peter Pomerantsev (5/19/23)\
 <b>The True Believer</b> by Eric Boffer (5-27-22)\

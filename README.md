@@ -49,6 +49,8 @@ thru the groups of people and see not a person, but without any emotion choose t
 
 12.<b>The Coddling of the American Mind</b> by Greg Lukianoff and Jonathan Haidt (10-2-25) - This book is basically about how american youth are more and more due to how they are being raised are hitting age milestones later in life while also not being able to grow up in the same way young adults were able to in generations past. Currently the country is safer than it has ever been in the last 50 years but there has been a raise in helicopter parenting and an all around fear that the children will suffer anything as small as a minor discomfort if they are outside the vision of an adult. Due to this, once they reach college, they are not able to adapt and deal with anything that can be a minor incovenience or even just someone who thinks differently then then. So we have been seeing outrage and protest which have forced staff to either cancel speechs or even lose their jobs because of what should have been a learning excercise for both parties. This has been an issue for both sides of the political spectrum, thought he issues on the right tend to be different then the outrage on the left. On the right there has been a movement to the far right which has accelerated the issues on the left.
 
+13. <b>The SS Dirlewanger Brigade: History of the Black Hunters</b> by Christian Ingrao (11-25-25) - This was ultimately something I read about because I seen it in a list of books on sale and I knew nothing about them. Turns out this is sort of like a German version of Inglorious Bastards where a bunch of Nazi delinquents were taken out of prison or concentration camps and given largely free range to capture partisans in other areas on the russian front. I had expected this to go a bit more indepth into what sort of gruesomeness they were being charged with, but those sort of details were more surface levels, though that seems to be also because there is not a lot known that can be confirmed. It seems though these people were tasked with finding rebels in areas by any means necessary. They would pillage, rape and kill everyone in there way. The mindset that was drilled into these people is they were hunting animals and as animals they didnt deserve any respect. The troops of this unit was involved with putting down the Warsaw Uprising and is expected that of the 20 or so mass graves there, 6 of them are from this unit alone just butchering people. While I didnt quite learn the details I wanted, I learned enough to realize that this sort of depravity has no place in civilized life.
+
 ### Fiction
 1. <b>Beren and Luthien</b> by J. R. R. Tolkien (1-4-25) - I enjoyed revisiting the world of the Lord of the Rings, but I did not really
 enjoy reading this story. So the story was broken up into chapters and each chapter was a slightly different retelling of the same
@@ -85,10 +87,10 @@ time. This story has everything that I have come to expect from a fantasy novel.
 
 ### Currently Reading
 
-1. The SS Dirlewanger Brigade: History of the Black Hunters by Christian Ingrao
+1. Fuck Feelings by Michael Bennett MD and Sarah Bennett
 2. Star Wars: From a Certain Point of View - Return of the Jedi by Various Authors
 
 ### Current Book Completed Count as of 10/5/25
 
-Non-fiction - 12\
+Non-fiction - 13\
 Fiction - 11
