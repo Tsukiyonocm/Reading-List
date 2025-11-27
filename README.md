@@ -16,7 +16,7 @@
 
 ### Currently Reading
 
-1. Fuck Feelings by Michael Bennett MD and Sarah Bennett
+1. F*ck Feelings by Michael Bennett MD and Sarah Bennett
 2. Star Wars: From a Certain Point of View - Return of the Jedi by Various Authors
 
 ### Current Book Completed Count as of 11/27/25
