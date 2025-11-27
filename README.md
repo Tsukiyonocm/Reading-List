@@ -90,7 +90,7 @@ time. This story has everything that I have come to expect from a fantasy novel.
 1. Fuck Feelings by Michael Bennett MD and Sarah Bennett
 2. Star Wars: From a Certain Point of View - Return of the Jedi by Various Authors
 
-### Current Book Completed Count as of 10/5/25
+### Current Book Completed Count as of 11/27/25
 
 Non-fiction - 13\
 Fiction - 11
