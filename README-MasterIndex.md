@@ -29,6 +29,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Four Lost Cities: A Secret History of the Urban Age</b> by Annalee Newitz (2-5-25)\
 <b>The Fourth Turning</b> by William Strauss (10-28-24)\
 <b>Get Well Soon: History's Worst Plagues and the Heroes Who Faught Them</b> by Jennifer Wright (3-19-24)\
+<b>F*ck Feelings</b> by Michael Bennett MD and Sarah Bennett (1-27-26)\
 <b>The God Delusion</b> by Richard Dawkins (2-02-21)\
 <b>The Great Influenza</b> by John M. Barry (6-29-20)\
 <b>Hitler's First Hundred Days</b> by Peter Fritzsche (4-20-25)\
