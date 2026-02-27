@@ -20,6 +20,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Brain Rules</b> by John Medina (10-5-23)\
 <b>Chasing Stardust</b> by Natalie Starkey (4-30-22)\
 <b>The Coddling of the American Mind</b> by Greg Lukianoff and Jonathan Haidt (10-2-25)\
+<b>Curly: An Illustrated Biography of the Superstooge</b> by Joan Howard Maurer (2-26-26)\
 <b>Deadliest Enemy</b> by Michael T. Osterholm (5-7-20)\
 <b>Digital Minimalism</b> by Cal Newport (1-9-24)\
 <b>Doctors from Hell</b> by Vivian Spitz (11-29-21)\
@@ -125,6 +126,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Slewfoot</b> by Brom (11-20-24)\
 <b>Ten Thousand Skies Above You</b> by Claudia Gray (3-14-25)\
 <b>A Thousand Pieces of You</b> by Claudia Gray (5-1-24)\
+<b>Three Body Problems</b> by Cixin Liu (2-26-26)\
 <b>The Traitor Baru Cormorant</b> by Seth Dickinson (3/24/23)\
 <b>Upgrade</b> by Blake Crouch (4-12-24)\
 <b>Wayward Pines - Pines</b> by Blake Crouch (7/29/23)\
