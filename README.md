@@ -28,7 +28,7 @@
 ### Currently Reading
 
 1. Six Women of Salem by Marilynne K. Roach
-2. A Million Worlds Without You by Claudia Gray
+2. A Million Worlds With You by Claudia Gray
 
 ### Current Book Completed Count as of 3/15/26
 
