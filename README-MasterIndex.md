@@ -111,6 +111,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Living Dead</b> by George Romero and Daniel Kraus (12-19-21)\
 <b>Lord of the Flies</b> by William Golding (5-27-20)\
 <b>Lord of Souls</b> by Greg Keyes (6-2-21)\
+<b>Lucky Day</b> by Chuck Tingle (3-13-26)\
 <b>The Memory Police</b> by Yoko Ogawa (1-13-24)\
 <b>Nier Automata: Short Story Long</b> by Jun Eishima (9-3-24)\
 <b>Nights of the Living Dead</b> by Anthology (3-13-21)\

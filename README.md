@@ -23,12 +23,14 @@
 
 2. <b>Three Body Problems</b> by Cixin Liu (2-26-26) - I was really interested in this book due to the fact that I loved the tv show on Netflix. All around the story was good and there was bits and pieces that I recognized from the show but one thing I didn't realize, though I should have, was that all the characters are different since the story is based in China and not Britain like the show. I had wrongly assumed that all the characters would be the same names so it would be easier to follow. Little did I know that all the characters had, understandably, Chinese names which made keeping track of who was who much more difficult. Looking at the book, it delved a bit more into the game aspects of the story line then the TV show did which I found a bit fascinating. Seems several of the other story arcs are either not in this book, or are just created to make more drama in the tv show. Most of all the characters are merged into one character in the book it seems. As the primary man is the one who plays the games and figures out what's going on, but is also the scientist that creates the nanomaterial which is used on Evans boat. I will probably continue the series as I still did enjoy the book, but I might need to figure out something in order to help keep all the characters straight.
 
+3. <b>Lucky Day</b> by Chuck Tingle (3-13-26) - This was a fun ride. The story starts off simply enough with a day in which a women is stressing about a meeting later to her girlfriend. Eventually we get to this meeting and all hell starts to break loose in what amounts to be the catalyst of the story. We have a monkey beating peoples head in with a typewriter, we have fish falling from the sky, a hot air balloon trailing corpses of riders hanging dead from the sides of it and just absolute chaos. What happens next was a fun ride overall. There are various other events for what comes to be called the Low Probability Events. All of which are gruesome and the story continues on in what I call quite low key but satisfying conclusion.
+
 ### Currently Reading
 
 1. Six Women of Salem by Marilynne K. Roach
-2. Lucky Day by Chuck Tingle
+2. A Million Worlds Without You by Claudia Gray
 
-### Current Book Completed Count as of 2/26/26
+### Current Book Completed Count as of 3/15/26
 
 Non-fiction - 3\
-Fiction - 2
+Fiction - 3
