@@ -25,12 +25,14 @@
 
 3. <b>Lucky Day</b> by Chuck Tingle (3-13-26) - This was a fun ride. The story starts off simply enough with a day in which a women is stressing about a meeting later to her girlfriend. Eventually we get to this meeting and all hell starts to break loose in what amounts to be the catalyst of the story. We have a monkey beating peoples head in with a typewriter, we have fish falling from the sky, a hot air balloon trailing corpses of riders hanging dead from the sides of it and just absolute chaos. What happens next was a fun ride overall. There are various other events for what comes to be called the Low Probability Events. All of which are gruesome and the story continues on in what I call quite low key but satisfying conclusion.
 
+4. <b>A Million Worlds With You</b> by Claudia Gray (4-5-26) This was the conclusion to this story and it really didn't disappoint. Overall it didn't change much of the formula it had working for it, Margarite goes to a new dimension and finds that version of Paul, wash rinse repeat. The way it was written though really worked for me. The connection between the characters both good and bad really struck out and overall I was quite happy with the conclusion even if it seemed a bit rushed at the end. While I probably will not read the series again, I do not regret reading it even if it is slightly outside of my normal realm of stories. Ever sine I read her Star Wars series I have just really enjoyed the way she wrote about woman protagonist.
+
 ### Currently Reading
 
 1. Six Women of Salem by Marilynne K. Roach
-2. A Million Worlds With You by Claudia Gray
+2. The Halflings Gem by R.A. Salvatore
 
-### Current Book Completed Count as of 3/15/26
+### Current Book Completed Count as of 4/8/26
 
 Non-fiction - 3\
-Fiction - 3
+Fiction - 4

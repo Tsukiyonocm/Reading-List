@@ -113,6 +113,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Lord of Souls</b> by Greg Keyes (6-2-21)\
 <b>Lucky Day</b> by Chuck Tingle (3-13-26)\
 <b>The Memory Police</b> by Yoko Ogawa (1-13-24)\
+<b>A Million Worlds With You</b> by Claudia Gray (4-5-26)\
 <b>Nier Automata: Short Story Long</b> by Jun Eishima (9-3-24)\
 <b>Nights of the Living Dead</b> by Anthology (3-13-21)\
 <b>Pan’s Labyrinth</b> by Guillermo Del Toro and Cornellia Funke (7-4-21)\
