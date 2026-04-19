@@ -63,6 +63,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Radium Girls</b> by Kate Moore (5-15-25)\
 <b>The Revenge of Gaia</b> by James Lovelock (11-11-20)\
 <b>The Righteous Mind</b> by Jonathan Haidt (7-26-21)\
+<b>Six Woman of Salem</b> by Marilynne K. Roach (4-18-26)\
 <b>The Sixth Extinction</b> by Elizabeth Kolbert (9-04-21)\
 <b>Spillover</b> by David Quammen (11-6-21)\
 <b>The SS Dirlewanger Brigade: History of the Black Hunters</b> by Christian Ingrao (11-25-25)\

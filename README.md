@@ -18,6 +18,8 @@
 
 3. <b>Curly: An Illustrated Biography of the Superstooge</b> by Joan Howard Maurer (2-26-26) - This was another fantastic book by an author who is the daughter of Moe. I first read the book that Moe himself wrote that she edited, and Curly being my favorite stooge, I had to read it. It was very interesting getting more involved with the overall family in this one. The mother of the stooges was the breadwinner of the family and also ruled them with an iron fist. She largely controlled Curly's life up till and even after he finally became a stooge. It was also a quite sad read as well. Reading about how much he seemed depressed throughout his life, how he filled that void with partying and late night dances, women and booze. The eventual conclusion of his strokes and having to get out of show biz and followed by more heart ache as well. After the strokes he married another women after only knowing her a few weeks and per his norm, showered her with everything she could ever want. Only to find out that she was a terrible person and was only with him for the money. Till eventually when he got really sick and actually managed to find someone who seemed to really care for him only to die soon after. Honestly this was a great read all things consider and I could not recommend this enough.
 
+4. <b>Six Woman of Salem</b> by Marilynne K. Roach (4-18-26) - I honestly was not sure what to expect about this. Reading about the Salem Witch Trials I had never really looked much into and most of my "knowledge" was based on cartoons and just random references to it thru movies and other media. Overall when reading the book it was hard to keep names straight especially early on in the book. The author throws family histories of the major players in the events at you. Keeping names straight when there are both men and women who are named JR and SR was quite hard for me. Once it settled down into the actual story at hand though, it became a bit easier to follow. Overall I was surprised really by the amount of legal happenings during this time in history. The author makes notes of various times of people suing others for various things and I was honestly surprised by this as I expected given the time period to be less legalities going on. The actual trials seems to have been largely brought on by people, I'm guessing, either faking what's happening to them (going into fits or seizures for instance), or perhaps its some form of mass psychosis that happened. While the author didn't make a habit of making a judgement one way or the other and just presenting the facts in as much of a day by day story of the events. At the end of it, I did enjoy learning what could be learned about the events, even if given the timeframe of when things happened, some of it was anecdotal in origin.
+
 ### Fiction
 1. <b>Star Wars: Return of the Jedi: From a Certain Point of View</b> by Various Authors (1-2-26) - This is probably the latest I am getting a book added to my read list. Overall I just wasn't feeling this book that much compared to the others. Not many of the stories stuck out to me and are really not that memorable. I don't regret reading it but I also know I wont ever read this and I would be hard pressed to recommend this to someone else to pick up and read. Like the previous books in this Certain Point of View storyline, we look at stories from the people who were around the events of the main story. So there was multiple stories from Dancers or people who worked in Jabba's palace, various story arcs involving various imperial officers and stormtroopers, a story from the perspective of the Ewoks, and obviously from the various background rebels as well.
 
@@ -29,10 +31,10 @@
 
 ### Currently Reading
 
-1. Six Women of Salem by Marilynne K. Roach
+1. Misbelief by Dan Ariely
 2. The Halflings Gem by R.A. Salvatore
 
-### Current Book Completed Count as of 4/8/26
+### Current Book Completed Count as of 4/19/26
 
-Non-fiction - 3\
+Non-fiction - 4\
 Fiction - 4
