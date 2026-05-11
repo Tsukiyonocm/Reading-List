@@ -29,12 +29,14 @@
 
 4. <b>A Million Worlds With You</b> by Claudia Gray (4-5-26) This was the conclusion to this story and it really didn't disappoint. Overall it didn't change much of the formula it had working for it, Margarite goes to a new dimension and finds that version of Paul, wash rinse repeat. The way it was written though really worked for me. The connection between the characters both good and bad really struck out and overall I was quite happy with the conclusion even if it seemed a bit rushed at the end. While I probably will not read the series again, I do not regret reading it even if it is slightly outside of my normal realm of stories. Ever sine I read her Star Wars series I have just really enjoyed the way she wrote about woman protagonist.
 
+5. <b>The Halflings Gem</b> by R. A. Salvatore (5-9-26) - Having read this a long time ago I still find enjoyment reading these books. Reading about the tales of Drizzt, Wulfgar, Bruenor, Cattie Brie and Regis still feels new even though I have read probably more then 20 or so of the books in the entire story arc. This one continues the journey from the ending of the previous book where Drizzt and Wulfgar leave from Mithral Hall to try to track down the assassin Artemis Entreri to save Regis. As stated, this was a great read and I would be surprised if I don't eventually pick the series up to read again in the future. 
+
 ### Currently Reading
 
 1. Misbelief by Dan Ariely
-2. The Halflings Gem by R.A. Salvatore
+2. Star Wars: The Paradise Snare by A. C. Crispin
 
-### Current Book Completed Count as of 4/19/26
+### Current Book Completed Count as of 5/11/26
 
 Non-fiction - 4\
-Fiction - 4
+Fiction - 5
