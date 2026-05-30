@@ -5,80 +5,80 @@ With the fiction books I might try to do things slightly different, I tend to re
 
 ## Non-fiction
 
-<b>A Brave Black Regiment</b> by Captain Luis F. Emilio (8-11-24) /
-<b>A Crack in Creation: Gene Editing and the Unthinkable Power to Control Evolution</b> by Jennifer Doudna (1-15-20) /
-<b>A Rough Ride to the Future</b> by James Lovelock (8-21-24) /
-<b>AI 2041: Ten Visions of Our Future</b> by Kai-fu Lee and Chen Qiufan (3-12-24) /
-<b>The AI Revolution in Medicine: GPT4 and Beyond</b> by Peter Lee (6-5-25) /
-<b>The Anatomy of Fascism</b> by Robert O. Paxton (5-16-24) /
-<b>Archaeology From Space</b> by Sarah Parcak (12-21-19) /
-<b>Asteroid Hunters</b> by Carrie Nugent (6-11-25) /
-<b>Astrophysics for People in a Hurry</b> by Neil deGrasse Tyson (1-26-20) /
-<b>Auschwitz</b> by Miklos Nyiszli (10-16-23) /
-<b>Bad Blood</b> by John Carreyrou (8-12-20) /
-<b>Beyond Band of Brothers</b> by Major Dick Winters (7-6-24) /
-<b>Brain Rules</b> by John Medina (10-5-23) /
-<b>Chasing Stardust</b> by Natalie Starkey (4-30-22) /
-<b>The Coddling of the American Mind</b> by Greg Lukianoff and Jonathan Haidt (10-2-25) /
-<b>Curly: An Illustrated Biography of the Superstooge</b> by Joan Howard Maurer (2-26-26) /
-<b>Deadliest Enemy</b> by Michael T. Osterholm (5-7-20) /
-<b>Digital Minimalism</b> by Cal Newport (1-9-24) /
-<b>Doctors from Hell</b> by Vivian Spitz (11-29-21) /
-<b>The Dodo</b> by Charles River Editors (8-7-25) /
-<b>The End is Always Near</b> by Dan Carlin (2-17-26) /
-<b>End Times: A Brief Guide to the End of the World</b> by Bryan Walsh (9-12-20) /
-<b>Fortitude: American Resilience in the Era of Outrage</b> by Dan Crenshaw (8-06-21) /
-<b>Four Lost Cities: A Secret History of the Urban Age</b> by Annalee Newitz (2-5-25) /
-<b>The Fourth Turning</b> by William Strauss (10-28-24) /
-<b>Get Well Soon: History's Worst Plagues and the Heroes Who Fought Them</b> by Jennifer Wright (3-19-24) /
-<b>F*ck Feelings</b> by Michael Bennett MD and Sarah Bennett (1-27-26) /
-<b>The God Delusion</b> by Richard Dawkins (2-02-21) /
-<b>The Great Influenza</b> by John M. Barry (6-29-20) /
-<b>Hitler's First Hundred Days</b> by Peter Fritzsche (4-20-25) /
-<b>Hivemind</b> by Sarah Rose Cavanagh (4-19-21) /
-<b>The Hot Zone</b> by Richard Preston (10-17-22) /
-<b>How to Build a Dinosaur</b> by Jack Horner (8-11-24) /
-<b>How to Clone a Mammoth</b> by Beth Shapiro (6-13-24) /
-<b>How Democracies Die</b> by Steven Levitsky and Daniel Ziblatt (5-4-25) /
-<b>How to Raise an Adult</b> by Julie Lythcott-Haims (8-16-22) /
-<b>How We Will Live on Mars</b> by Stephen Petranek (9-27-23) /
-<b>Humankind</b> by Rutger Bregman (2-2-23) /
-<b>I Stooged to Conquer: The Autobiography of the Leader of the Three Stooges</b> by Moe Howard (6-18-24) /
-<b>In the Realm of Hungry Ghosts</b> by Gabor Maté (8-1-25) /
-<b>Insight Meditation: The Practice of Freedom</b> by Joseph Goldstein (11-20-23) /
-<b>Irrationally Predictable</b> by Dan Ariely (11-14-24) /
-<b>Japan's Infamous Unit 731</b> by Hal Gold (12-16-22) /
-<b>The Killer Across the Table</b> by John Douglas and Mark Olshaker (2-19-21) /
-<b>Klaus Barbie: The Butcher of Lyons</b> by Tom Bower (5-17-21) /
-<b>Lifespan</b> by David Sinclair (6-20-22) /
-<b>The March of Folly</b> by Barbara Tuchman (8-8-23) /
-<b>Mengele: Unmasking the Angel of Death</b> by David G. Marwell (12-24-24) /
-<b>Mindset</b> by Carol S. Dweck (9-21-22) /
-<b>The Minimalist Home</b> by Joshua Becker (3-23-23) /
-<b>Misbelief</b> by Dan Ariely (5-29-26) /
-<b>The More of Less</b> by Joshua Becker (3-13-21) /
-<b>The Paradox of Choice: Why More is Less</b> by Barry Schwartz (3-5-20) /
-<b>The Planets</b> by Andrew Cohen and Professor Brian Cox (1-21-23) /
-<b>Punished by Rewards</b> by Alfie Kohn (11-29-19) /
-<b>Quiet</b> by Susan Cain (1-10-22) /
-<b>The Radium Girls</b> by Kate Moore (5-15-25) /
-<b>The Revenge of Gaia</b> by James Lovelock (11-11-20) /
-<b>The Righteous Mind</b> by Jonathan Haidt (7-26-21) /
-<b>Six Women of Salem</b> by Marilynne K. Roach (4-18-26) /
-<b>The Sixth Extinction</b> by Elizabeth Kolbert (9-04-21) /
-<b>Spillover</b> by David Quammen (11-6-21) /
-<b>The SS Dirlewanger Brigade: History of the Black Hunters</b> by Christian Ingrao (11-25-25) /
-<b>Temples, Tombs & Hieroglyphs</b> by Barbara Mertz (3-5-25) /
-<b>This Is Not Propaganda: Adventures in the War Against Reality</b> by Peter Pomerantsev (5-19-23) /
-<b>The True Believer</b> by Eric Hoffer (5-27-22) /
-<b>The True Story of the Christmas Truce</b> by Anthony Richards (2-19-23) /
-<b>Typhoid Mary</b> by Anthony Bourdain (1-17-22) /
-<b>Ultralearning</b> by Scott H. Young (4-12-20) /
-<b>Under a White Sky</b> by Elizabeth Kolbert (1-13-25) /
-<b>The Vanishing Face of Gaia</b> by James Lovelock (4-21-23) /
-<b>The War on Science</b> by Shawn Otto (4-1-22) /
-<b>What Unites Us</b> by Dan Rather (11-20-22) /
-<b>When the Earth Had Two Moons</b> by Erik Asphaug (10-15-20)/
+<b>A Brave Black Regiment</b> by Captain Luis F. Emilio (8-11-24) \
+<b>A Crack in Creation: Gene Editing and the Unthinkable Power to Control Evolution</b> by Jennifer Doudna (1-15-20) \
+<b>A Rough Ride to the Future</b> by James Lovelock (8-21-24) \
+<b>AI 2041: Ten Visions of Our Future</b> by Kai-fu Lee and Chen Qiufan (3-12-24) \
+<b>The AI Revolution in Medicine: GPT4 and Beyond</b> by Peter Lee (6-5-25) \
+<b>The Anatomy of Fascism</b> by Robert O. Paxton (5-16-24) \
+<b>Archaeology From Space</b> by Sarah Parcak (12-21-19) \
+<b>Asteroid Hunters</b> by Carrie Nugent (6-11-25) \
+<b>Astrophysics for People in a Hurry</b> by Neil deGrasse Tyson (1-26-20) \
+<b>Auschwitz</b> by Miklos Nyiszli (10-16-23) \
+<b>Bad Blood</b> by John Carreyrou (8-12-20) \
+<b>Beyond Band of Brothers</b> by Major Dick Winters (7-6-24) \
+<b>Brain Rules</b> by John Medina (10-5-23) \
+<b>Chasing Stardust</b> by Natalie Starkey (4-30-22) \
+<b>The Coddling of the American Mind</b> by Greg Lukianoff and Jonathan Haidt (10-2-25) \
+<b>Curly: An Illustrated Biography of the Superstooge</b> by Joan Howard Maurer (2-26-26) \
+<b>Deadliest Enemy</b> by Michael T. Osterholm (5-7-20) \
+<b>Digital Minimalism</b> by Cal Newport (1-9-24) \
+<b>Doctors from Hell</b> by Vivian Spitz (11-29-21) \
+<b>The Dodo</b> by Charles River Editors (8-7-25) \
+<b>The End is Always Near</b> by Dan Carlin (2-17-26) \
+<b>End Times: A Brief Guide to the End of the World</b> by Bryan Walsh (9-12-20) \
+<b>Fortitude: American Resilience in the Era of Outrage</b> by Dan Crenshaw (8-06-21) \
+<b>Four Lost Cities: A Secret History of the Urban Age</b> by Annalee Newitz (2-5-25) \
+<b>The Fourth Turning</b> by William Strauss (10-28-24) \
+<b>Get Well Soon: History's Worst Plagues and the Heroes Who Fought Them</b> by Jennifer Wright (3-19-24) \
+<b>F*ck Feelings</b> by Michael Bennett MD and Sarah Bennett (1-27-26) \
+<b>The God Delusion</b> by Richard Dawkins (2-02-21) \
+<b>The Great Influenza</b> by John M. Barry (6-29-20) \
+<b>Hitler's First Hundred Days</b> by Peter Fritzsche (4-20-25) \
+<b>Hivemind</b> by Sarah Rose Cavanagh (4-19-21) \
+<b>The Hot Zone</b> by Richard Preston (10-17-22) \
+<b>How to Build a Dinosaur</b> by Jack Horner (8-11-24) \
+<b>How to Clone a Mammoth</b> by Beth Shapiro (6-13-24) \
+<b>How Democracies Die</b> by Steven Levitsky and Daniel Ziblatt (5-4-25) \
+<b>How to Raise an Adult</b> by Julie Lythcott-Haims (8-16-22) \
+<b>How We Will Live on Mars</b> by Stephen Petranek (9-27-23) \
+<b>Humankind</b> by Rutger Bregman (2-2-23) \
+<b>I Stooged to Conquer: The Autobiography of the Leader of the Three Stooges</b> by Moe Howard (6-18-24) \
+<b>In the Realm of Hungry Ghosts</b> by Gabor Maté (8-1-25) \
+<b>Insight Meditation: The Practice of Freedom</b> by Joseph Goldstein (11-20-23) \
+<b>Irrationally Predictable</b> by Dan Ariely (11-14-24) \
+<b>Japan's Infamous Unit 731</b> by Hal Gold (12-16-22) \
+<b>The Killer Across the Table</b> by John Douglas and Mark Olshaker (2-19-21) \
+<b>Klaus Barbie: The Butcher of Lyons</b> by Tom Bower (5-17-21) \
+<b>Lifespan</b> by David Sinclair (6-20-22) \
+<b>The March of Folly</b> by Barbara Tuchman (8-8-23) \
+<b>Mengele: Unmasking the Angel of Death</b> by David G. Marwell (12-24-24) \
+<b>Mindset</b> by Carol S. Dweck (9-21-22) \
+<b>The Minimalist Home</b> by Joshua Becker (3-23-23) \
+<b>Misbelief</b> by Dan Ariely (5-29-26) \
+<b>The More of Less</b> by Joshua Becker (3-13-21) \
+<b>The Paradox of Choice: Why More is Less</b> by Barry Schwartz (3-5-20) \
+<b>The Planets</b> by Andrew Cohen and Professor Brian Cox (1-21-23) \
+<b>Punished by Rewards</b> by Alfie Kohn (11-29-19) \
+<b>Quiet</b> by Susan Cain (1-10-22) \
+<b>The Radium Girls</b> by Kate Moore (5-15-25) \
+<b>The Revenge of Gaia</b> by James Lovelock (11-11-20) \
+<b>The Righteous Mind</b> by Jonathan Haidt (7-26-21) \
+<b>Six Women of Salem</b> by Marilynne K. Roach (4-18-26) \
+<b>The Sixth Extinction</b> by Elizabeth Kolbert (9-04-21) \
+<b>Spillover</b> by David Quammen (11-6-21) \
+<b>The SS Dirlewanger Brigade: History of the Black Hunters</b> by Christian Ingrao (11-25-25) \
+<b>Temples, Tombs & Hieroglyphs</b> by Barbara Mertz (3-5-25) \
+<b>This Is Not Propaganda: Adventures in the War Against Reality</b> by Peter Pomerantsev (5-19-23) \
+<b>The True Believer</b> by Eric Hoffer (5-27-22) \
+<b>The True Story of the Christmas Truce</b> by Anthony Richards (2-19-23) \
+<b>Typhoid Mary</b> by Anthony Bourdain (1-17-22) \
+<b>Ultralearning</b> by Scott H. Young (4-12-20) \
+<b>Under a White Sky</b> by Elizabeth Kolbert (1-13-25) \
+<b>The Vanishing Face of Gaia</b> by James Lovelock (4-21-23) \
+<b>The War on Science</b> by Shawn Otto (4-1-22) \
+<b>What Unites Us</b> by Dan Rather (11-20-22) \
+<b>When the Earth Had Two Moons</b> by Erik Asphaug (10-15-20) \
 <b>Yes to Life, In Spite of Everything</b> by Viktor Frankl (10-29-22) 
 
 
