@@ -78,7 +78,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Vanishing Face of Gaia</b> by James Lovelock (4-21-23) /
 <b>The War on Science</b> by Shawn Otto (4-1-22) /
 <b>What Unites Us</b> by Dan Rather (11-20-22) /
-<b>When the Earth Had Two Moons</b> by Erik Asphaug (10-15-20) /
+<b>When the Earth Had Two Moons</b> by Erik Asphaug (10-15-20)/
 <b>Yes to Life, In Spite of Everything</b> by Viktor Frankl (10-29-22) 
 
 
