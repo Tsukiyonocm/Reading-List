@@ -55,6 +55,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Mengele: Unmasking the Angel of Death</b> by David G. Marwell (12-24-24)\
 <b>Mindset</b> by Carol S. Dweck (9-21-22)\
 <b>The Minimalist Home</b> by Joshua Becker (3/23/23)\
+<b>Misbelief</b> by Dan Ariely (5-29-26)\
 <b>The More of Less</b> by Joshua Becker (3-13-21)\
 <b>The Paradox of Choice: Why More is Less</b> by Barry Schwartz (3-5-20)\
 <b>The Planets</b> by Andrew Cohen and Professor Bryan Cox (1-21-23)\

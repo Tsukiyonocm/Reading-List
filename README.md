@@ -35,10 +35,10 @@
 
 ### Currently Reading
 
-1. Misbelief by Dan Ariely
+1. Children of Nazis by Tania Crasnianski
 2. Star Wars: The Paradise Snare by A. C. Crispin
 
-### Current Book Completed Count as of 5/11/26
+### Current Book Completed Count as of 5/29/26
 
-Non-fiction - 4\
+Non-fiction - 5\
 Fiction - 5
