@@ -33,12 +33,14 @@
 
 5. <b>The Halflings Gem</b> by R. A. Salvatore (5-9-26) - Having read this a long time ago I still find enjoyment reading these books. Reading about the tales of Drizzt, Wulfgar, Bruenor, Cattie Brie and Regis still feels new even though I have read probably more then 20 or so of the books in the entire story arc. This one continues the journey from the ending of the previous book where Drizzt and Wulfgar leave from Mithral Hall to try to track down the assassin Artemis Entreri to save Regis. As stated, this was a great read and I would be surprised if I don't eventually pick the series up to read again in the future. 
 
+6. <b>Star Wars: The Paradise Snare</b> by A. C. Crispin (5-29-26) - This is book one of the Han Solo trilogy of books which details out Hans life prior to the events of the first Star Wars movie and his meeting in the Cantina. Obviously this is also no longer canon and is considered part of the legends series of books from pre Disney. The book starts with Han as a younger kid working for Garris Shrike which finds him constantly thieving and pulling little jobs. Eventually it has him escaping, making his way to a what turns out to be a Hutt drug and slave business and meeting a woman there. the story plays out at this point and ends with him joining the Imperial Academy. I really enjoyed this book, though I felt like I read it before in the past, though I don't remember ever having it. I know I did read the third book in the series though, so not sure if I just looked up info about it at some point, or just forgot reading it.
+
 ### Currently Reading
 
 1. Children of Nazis by Tania Crasnianski
-2. Star Wars: The Paradise Snare by A. C. Crispin
+2. Spread Me by Sarah Gailey
 
-### Current Book Completed Count as of 5/29/26
+### Current Book Completed Count as of 5/30/26
 
 Non-fiction - 5\
-Fiction - 5
+Fiction - 6

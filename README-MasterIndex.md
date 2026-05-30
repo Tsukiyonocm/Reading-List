@@ -200,8 +200,9 @@ With the fiction books I might try to do things slightly different, I tend to re
 
 ### Star Wars Old Canon
 
-<b>Star Wars: Reven</b> By Drew Karpyshyn (2-7-20)
-<b>Star Wars: Death Star</b> by Michael Reaves and Steve Perry (11-4-24)
+<b>Star Wars: Reven</b> By Drew Karpyshyn (2-7-20)\
+<b>Star Wars: Death Star</b> by Michael Reaves and Steve Perry (11-4-24)\
+<b>Star Wars: The Paradise Snare</b> by A. C. Crispin (5-29-26)
 
 ### Resident Evil
 
