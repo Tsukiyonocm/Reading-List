@@ -128,6 +128,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Sea of Tranquility</b> by Emily St. John Mandel (1-18-25)\
 <b>Seveneves</b> by Neal Stephenson (5-7-21)\
 <b>Slewfoot</b> by Brom (11-20-24)\
+<b>Spread Me</b> by Sarah Gailey (6-7-26)\
 <b>Ten Thousand Skies Above You</b> by Claudia Gray (3-14-25)\
 <b>A Thousand Pieces of You</b> by Claudia Gray (5-1-24)\
 <b>Three Body Problems</b> by Cixin Liu (2-26-26)\

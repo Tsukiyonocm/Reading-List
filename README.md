@@ -35,12 +35,14 @@
 
 6. <b>Star Wars: The Paradise Snare</b> by A. C. Crispin (5-29-26) - This is book one of the Han Solo trilogy of books which details out Hans life prior to the events of the first Star Wars movie and his meeting in the Cantina. Obviously this is also no longer canon and is considered part of the legends series of books from pre Disney. The book starts with Han as a younger kid working for Garris Shrike which finds him constantly thieving and pulling little jobs. Eventually it has him escaping, making his way to a what turns out to be a Hutt drug and slave business and meeting a woman there. the story plays out at this point and ends with him joining the Imperial Academy. I really enjoyed this book, though I felt like I read it before in the past, though I don't remember ever having it. I know I did read the third book in the series though, so not sure if I just looked up info about it at some point, or just forgot reading it.
 
+7. <b>Spread Me</b> by Sarah Gailey (6-7-26) - I am not sure if I liked this book or not. When I first heard of it it was stated as being similar to the "The Thing". Which in some respects it might be, though I feel like most of the horror was thrown out and instead it was written more of a Erotic thriller. The story itself was interesting, its largely talking about a lichen that was unburied which contains a virus that infects the crew and can slowly take control of them. I figured this would lead to the horror part, but it usually lent itself to the infected coming on to the uninfected until its noticed that they are now infected. I didn't necessarily think it was bad but it also don't make me want to read anything else by the author.
+
 ### Currently Reading
 
 1. Children of Nazis by Tania Crasnianski
-2. Spread Me by Sarah Gailey
+2. Penance by Kanae Minato
 
-### Current Book Completed Count as of 5/30/26
+### Current Book Completed Count as of 6/8/26
 
 Non-fiction - 5\
-Fiction - 6
+Fiction - 7
