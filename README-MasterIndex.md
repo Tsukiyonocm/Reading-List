@@ -19,6 +19,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Beyond Band of Brothers</b> by Major Dick Winters (7-6-24) \
 <b>Brain Rules</b> by John Medina (10-5-23) \
 <b>Chasing Stardust</b> by Natalie Starkey (4-30-22) \
+<b>Children of Nazis</b> by Tania Crasnianski (6-16-26)\
 <b>The Coddling of the American Mind</b> by Greg Lukianoff and Jonathan Haidt (10-2-25) \
 <b>Curly: An Illustrated Biography of the Superstooge</b> by Joan Howard Maurer (2-26-26) \
 <b>Deadliest Enemy</b> by Michael T. Osterholm (5-7-20) \

@@ -22,6 +22,8 @@
 
 5. <b>Misbelief</b> by Dan Ariely (5-29-26) - This was a fascinating dive into the mind of those who are conspiracy theorist or those who are die hard for their political party of choice. Talking about how it typically starts quite simply with those closest not giving the person a place to discuss things plainly. This ostracizes them and starts pushing them into the throws of those who believe as they do. In the process this starts a funnel where the person starts getting more and more extreme with their belief. All around it was interesting, the author talked about how he dealt with this after covid and the covid deniers talking about him as if he is the devil for some largely tame things he had done in the past. I was sort of hoping it would go more into the effects of social media, but while the author touched it very briefly, even he stated that that could be a book on its own. He did talk a bit also about how its easier to fall into these beliefs during times of stress as a way to gain control over some aspect of your life. 
 
+6. <b>Children of Nazis</b> by Tania Crasnianski (6-16-26) - This was an interesting read though it wasn't as in depth as I would have really hoped, though explained by the author it makes sense honestly. So the chapters were broken up into the lives of Goring, Hess, Speer and several other high ranking Nazi's and their children's lives afterwards. I was really hoping to get more on the children's lives but sadly the author stated many of them would not interview so what was written about is just what was publicly known and previously stated. Several of them still believe their fathers were innocent of everything and have taken that to heart their whole lives. While others, such as Rolf Mengele, have been outspoken about their father and the crimes of their past. Overall I was disappointed that each chapter was pretty much 75% of who the father was and speaking about the home life and crimes, while the other 25% was about what happened to the rest of the family after the father was arrested or killed. Not much knew was learned her for me, so while interesting, it just wasn't quite what I was hoping to get in-depth into the family lives.
+
 ### Fiction
 1. <b>Star Wars: Return of the Jedi: From a Certain Point of View</b> by Various Authors (1-2-26) - This is probably the latest I am getting a book added to my read list. Overall I just wasn't feeling this book that much compared to the others. Not many of the stories stuck out to me and are really not that memorable. I don't regret reading it but I also know I wont ever read this and I would be hard pressed to recommend this to someone else to pick up and read. Like the previous books in this Certain Point of View storyline, we look at stories from the people who were around the events of the main story. So there was multiple stories from Dancers or people who worked in Jabba's palace, various story arcs involving various imperial officers and stormtroopers, a story from the perspective of the Ewoks, and obviously from the various background rebels as well.
 
@@ -39,10 +41,10 @@
 
 ### Currently Reading
 
-1. Children of Nazis by Tania Crasnianski
+1. Band of Brothers by Stephen Ambrose
 2. Penance by Kanae Minato
 
-### Current Book Completed Count as of 6/8/26
+### Current Book Completed Count as of 6/18/26
 
-Non-fiction - 5\
+Non-fiction - 6\
 Fiction - 7
