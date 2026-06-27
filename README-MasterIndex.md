@@ -121,6 +121,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Nights of the Living Dead</b> by Anthology (3-13-21)\
 <b>Pan’s Labyrinth</b> by Guillermo Del Toro and Cornellia Funke (7-4-21)\
 <b>Patron Tales</b> by Russell Smeaton  (12-16-22)\
+<b>Penance</b> by Kanae Minato (6-27-26)\
 <b>The Perfect Day</b> by Ira Levin (6-21-21)\
 <b>Planetfall</b> by Emma Newman (7-9-22)\
 <b>Ready Player Two</b>> by Ernest Cline (9-1-25)\
