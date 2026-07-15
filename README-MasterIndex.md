@@ -16,6 +16,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Astrophysics for People in a Hurry</b> by Neil deGrasse Tyson (1-26-20) \
 <b>Auschwitz</b> by Miklos Nyiszli (10-16-23) \
 <b>Bad Blood</b> by John Carreyrou (8-12-20) \
+<b>Band of Brothers</b> by Stephen Ambrose (7-14-26) \
 <b>Beyond Band of Brothers</b> by Major Dick Winters (7-6-24) \
 <b>Brain Rules</b> by John Medina (10-5-23) \
 <b>Chasing Stardust</b> by Natalie Starkey (4-30-22) \

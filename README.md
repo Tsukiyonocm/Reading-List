@@ -24,6 +24,8 @@
 
 6. <b>Children of Nazis</b> by Tania Crasnianski (6-16-26) - This was an interesting read though it wasn't as in depth as I would have really hoped, though explained by the author it makes sense honestly. So the chapters were broken up into the lives of Goring, Hess, Speer and several other high ranking Nazi's and their children's lives afterwards. I was really hoping to get more on the children's lives but sadly the author stated many of them would not interview so what was written about is just what was publicly known and previously stated. Several of them still believe their fathers were innocent of everything and have taken that to heart their whole lives. While others, such as Rolf Mengele, have been outspoken about their father and the crimes of their past. Overall I was disappointed that each chapter was pretty much 75% of who the father was and speaking about the home life and crimes, while the other 25% was about what happened to the rest of the family after the father was arrested or killed. Not much knew was learned her for me, so while interesting, it just wasn't quite what I was hoping to get in-depth into the family lives.
 
+7. <b>Band of Brothers</b> by Stephen Ambrose (7-14-26) - I enjoyed this as I opted to read it and watch the tv show at the same time to see the differences and the similarities. I enjoyed reading about these people a bit more in-depth than the show went into as well as reading about some events that weren't strictly mentioned in the show. For instance, while it was mentioned that they went to various other cities after Foy in the show, you got to read a bit more about those altercations in the book. One problem I had, and honestly was one of the major reasons I wanted to read the book, the entire part of the show where they go into the concentration camp, this encompasses all of about three paragraphs in the book. It gives little to no detail. After a bit of reading online, I have learned that this is largely because it appears there is not much real information about the events, or even if they really happened in the way depicted. So it would appear that this is more for dramatic affect to show more about the atrocities committed by the Germans during the war then actual facts. Overall was still a fantastic read from my perspective anyway.
+
 ### Fiction
 1. <b>Star Wars: Return of the Jedi: From a Certain Point of View</b> by Various Authors (1-2-26) - This is probably the latest I am getting a book added to my read list. Overall I just wasn't feeling this book that much compared to the others. Not many of the stories stuck out to me and are really not that memorable. I don't regret reading it but I also know I wont ever read this and I would be hard pressed to recommend this to someone else to pick up and read. Like the previous books in this Certain Point of View storyline, we look at stories from the people who were around the events of the main story. So there was multiple stories from Dancers or people who worked in Jabba's palace, various story arcs involving various imperial officers and stormtroopers, a story from the perspective of the Ewoks, and obviously from the various background rebels as well.
 
@@ -43,10 +45,10 @@
 
 ### Currently Reading
 
-1. Band of Brothers by Stephen Ambrose
+1. The Next Great Migration: The Beauty and Terror of Life on the Move by Sonia Shah
 2. Oathbringer by Brandon Sanderson
 
-### Current Book Completed Count as of 6/26/26
+### Current Book Completed Count as of 7/14/26
 
-Non-fiction - 6\
+Non-fiction - 7\
 Fiction - 8
