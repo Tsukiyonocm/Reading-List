@@ -26,6 +26,8 @@
 
 7. <b>Band of Brothers</b> by Stephen Ambrose (7-14-26) - I enjoyed this as I opted to read it and watch the tv show at the same time to see the differences and the similarities. I enjoyed reading about these people a bit more in-depth than the show went into as well as reading about some events that weren't strictly mentioned in the show. For instance, while it was mentioned that they went to various other cities after Foy in the show, you got to read a bit more about those altercations in the book. One problem I had, and honestly was one of the major reasons I wanted to read the book, the entire part of the show where they go into the concentration camp, this encompasses all of about three paragraphs in the book. It gives little to no detail. After a bit of reading online, I have learned that this is largely because it appears there is not much real information about the events, or even if they really happened in the way depicted. So it would appear that this is more for dramatic affect to show more about the atrocities committed by the Germans during the war then actual facts. Overall was still a fantastic read from my perspective anyway.
 
+8. <b>The Next Great Migration</b> by Sonia Shah (8-16-26) - Overall there was aspects of this book that I expected and some I didn't. I found it overall quite surprising that the whole notion of eugenics last and was still widely debated even to within the last 15 years or so. I found it interesting that at least in politics, the idea of us vs them, has been used forever, especially when the "them" is considered to be the inferior of people. Even more surprising to me is that an American wrote a book about Eugenics that Hitler considered "his bible". In the end, the book spoke a lot on typical migration being hardwired into all animals which includes humanity. Does go over a bit of climate science about how it will affect the future numbers of people requiring to migrate, how warming temps will drive people to more northern climates as well. Overall, even though my thoughts are all over the place on this book as the topics it went over was much more varied then I expected, I found it quite a interesting read.
+
 ### Fiction
 1. <b>Star Wars: Return of the Jedi: From a Certain Point of View</b> by Various Authors (1-2-26) - This is probably the latest I am getting a book added to my read list. Overall I just wasn't feeling this book that much compared to the others. Not many of the stories stuck out to me and are really not that memorable. I don't regret reading it but I also know I wont ever read this and I would be hard pressed to recommend this to someone else to pick up and read. Like the previous books in this Certain Point of View storyline, we look at stories from the people who were around the events of the main story. So there was multiple stories from Dancers or people who worked in Jabba's palace, various story arcs involving various imperial officers and stormtroopers, a story from the perspective of the Ewoks, and obviously from the various background rebels as well.
 
@@ -45,10 +47,10 @@
 
 ### Currently Reading
 
-1. The Next Great Migration: The Beauty and Terror of Life on the Move by Sonia Shah
+1. The Rise and Fall of the Dinosaurs by Steve Brusatte
 2. Oathbringer by Brandon Sanderson
 
-### Current Book Completed Count as of 7/14/26
+### Current Book Completed Count as of 8/16/26
 
-Non-fiction - 7\
+Non-fiction - 8\
 Fiction - 8

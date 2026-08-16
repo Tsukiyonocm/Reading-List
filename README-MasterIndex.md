@@ -59,6 +59,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Minimalist Home</b> by Joshua Becker (3-23-23) \
 <b>Misbelief</b> by Dan Ariely (5-29-26) \
 <b>The More of Less</b> by Joshua Becker (3-13-21) \
+<b>The Next Great Migration</b> by Sonia Shah (8-16-26) \
 <b>The Paradox of Choice: Why More is Less</b> by Barry Schwartz (3-5-20) \
 <b>The Planets</b> by Andrew Cohen and Professor Brian Cox (1-21-23) \
 <b>Punished by Rewards</b> by Alfie Kohn (11-29-19) \
