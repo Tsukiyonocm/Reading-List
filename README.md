@@ -28,6 +28,8 @@
 
 8. <b>The Next Great Migration</b> by Sonia Shah (8-16-26) - Overall there was aspects of this book that I expected and some I didn't. I found it overall quite surprising that the whole notion of eugenics last and was still widely debated even to within the last 15 years or so. I found it interesting that at least in politics, the idea of us vs them, has been used forever, especially when the "them" is considered to be the inferior of people. Even more surprising to me is that an American wrote a book about Eugenics that Hitler considered "his bible". In the end, the book spoke a lot on typical migration being hardwired into all animals which includes humanity. Does go over a bit of climate science about how it will affect the future numbers of people requiring to migrate, how warming temps will drive people to more northern climates as well. Overall, even though my thoughts are all over the place on this book as the topics it went over was much more varied then I expected, I found it quite a interesting read.
 
+9. <b>The Rise and Fall of the Dinosaurs</b> by Steve Brusatte (9-14-26) - I knew what to expect going in, this book is very much the title. It talks about the earliest rise of the dinosaurs coming in from pre cretaceous time frames up to the eventual end of the dinosaur reign. It did delve into a bit of how each age ended, for instance the end cretaceous where the super volcanos erupted and starting spewing their gases into the atmosphere. Talking about how the Jurassic just sort of ended and rolled right into the Triassic ages. While I was knowledgeable on some of what was spoken in, there was enough new information and anecdotes from the author about his career that it was a really entertaining read all thru.
+
 ### Fiction
 1. <b>Star Wars: Return of the Jedi: From a Certain Point of View</b> by Various Authors (1-2-26) - This is probably the latest I am getting a book added to my read list. Overall I just wasn't feeling this book that much compared to the others. Not many of the stories stuck out to me and are really not that memorable. I don't regret reading it but I also know I wont ever read this and I would be hard pressed to recommend this to someone else to pick up and read. Like the previous books in this Certain Point of View storyline, we look at stories from the people who were around the events of the main story. So there was multiple stories from Dancers or people who worked in Jabba's palace, various story arcs involving various imperial officers and stormtroopers, a story from the perspective of the Ewoks, and obviously from the various background rebels as well.
 
@@ -45,12 +47,14 @@
 
 8. <b>Penance</b> by Kanae Minato (6-27-26) - This was an average story. Once again, and it seems to be a theme as of late, this is not what I was expecting. The opening chapter tells the story of a group of kids playing and getting to know a child from a rich family. Eventually there is a murder among the members of the group. The rest of the story each chapter is written from the perspective of one of the children who had lived and witnessed the murder. Overall some aspects of the stories were interesting, getting a picture of the events that lead to the girls murder from the perspective of the child, then seeing how the narrator of the chapter lived the events afterwards and the grew up dealing with consequences of not being able to get the murder out of their mind. It wasn't the most interesting, but I found myself getting more involved a bit later in the story as I started putting the pieces together on how the story was written.
 
+9. <b>Oathbringer</b> by Brandon Sanderson (9-16-26) - I really love this series, I do sort of wish though that they weren't quite so long as I feel like it takes me forever to read them. This picks up right from the end of the second book where they just arrived to Urithiru and are now trying to figure out the new powers of the newly created knights radiant. Like before it seems to really focus on Shallen, Adolin, Dalinar, and Kaladen, though there is also the sprinkling of other minor characters mixed into it. This book brings the Voidbringers front and center and brings Odium the other God into the mix as well. Fantastic book and the last couple of chapters in particular I really couldn't put it down. Really cant wait to continue this story.
+
 ### Currently Reading
 
-1. The Rise and Fall of the Dinosaurs by Steve Brusatte
-2. Oathbringer by Brandon Sanderson
+1. A Bright Future by Joshua Goldstein
+2. Cadaver: Book 3 by Nick Clausen
 
-### Current Book Completed Count as of 8/16/26
+### Current Book Completed Count as of 9/16/26
 
-Non-fiction - 8\
-Fiction - 8
+Non-fiction - 9\
+Fiction - 9

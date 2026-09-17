@@ -67,6 +67,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>The Radium Girls</b> by Kate Moore (5-15-25) \
 <b>The Revenge of Gaia</b> by James Lovelock (11-11-20) \
 <b>The Righteous Mind</b> by Jonathan Haidt (7-26-21) \
+<b>The Rise and Fall of the Dinosaurs</b> by Steve Brusatte (9-14-26) \
 <b>Six Women of Salem</b> by Marilynne K. Roach (4-18-26) \
 <b>The Sixth Extinction</b> by Elizabeth Kolbert (9-04-21) \
 <b>Spillover</b> by David Quammen (11-6-21) \
@@ -146,7 +147,8 @@ With the fiction books I might try to do things slightly different, I tend to re
 
 ### The Stormlight Archive 
 <b>The Way of Kings</b> by Brandon Sanderson (7/16/23)\
-<b>Words of Radiance</b> by Brandon Sanderson (8-11-25)
+<b>Words of Radiance</b> by Brandon Sanderson (8-11-25)\
+<b>Oathbringer</b> by Brandon Sanderson (9-16-26)
 
 ### The Legend of Drizzt
 
