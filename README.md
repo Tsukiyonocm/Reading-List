@@ -49,12 +49,14 @@
 
 9. <b>Oathbringer</b> by Brandon Sanderson (9-16-26) - I really love this series, I do sort of wish though that they weren't quite so long as I feel like it takes me forever to read them. This picks up right from the end of the second book where they just arrived to Urithiru and are now trying to figure out the new powers of the newly created knights radiant. Like before it seems to really focus on Shallen, Adolin, Dalinar, and Kaladen, though there is also the sprinkling of other minor characters mixed into it. This book brings the Voidbringers front and center and brings Odium the other God into the mix as well. Fantastic book and the last couple of chapters in particular I really couldn't put it down. Really cant wait to continue this story.
 
+10. <b>Cadaver: Book 3</b> by Nick Clausen (9-24-26) - Book 3 was interesting and I am not really sure why I find it interesting. Its sort of like watching The Walking Dead, I really got bored with it about two seasons prior to stopping watching it because it was visually appealing enough for me to continue. The story still largely follows Aksel from the previous books as he keeps on this adventure. It seems like overall these first three books have only taken place over the course of a couple of days in this world. There are some more players coming into the story now offering different perspectives but I found it a bit hard to keep up with them because its been so long since I read the previous book. I shall continue the series though, the overall story arc is somewhat interesting at least and they are easy reads that don't take long to get thru.
+
 ### Currently Reading
 
 1. A Bright Future by Joshua Goldstein
-2. Cadaver: Book 3 by Nick Clausen
+2. HHhH by Laurent Binet
 
-### Current Book Completed Count as of 9/16/26
+### Current Book Completed Count as of 9/24/26
 
 Non-fiction - 9\
-Fiction - 9
+Fiction - 10
