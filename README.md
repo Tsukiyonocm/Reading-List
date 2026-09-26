@@ -30,6 +30,8 @@
 
 9. <b>The Rise and Fall of the Dinosaurs</b> by Steve Brusatte (9-14-26) - I knew what to expect going in, this book is very much the title. It talks about the earliest rise of the dinosaurs coming in from pre cretaceous time frames up to the eventual end of the dinosaur reign. It did delve into a bit of how each age ended, for instance the end cretaceous where the super volcanos erupted and starting spewing their gases into the atmosphere. Talking about how the Jurassic just sort of ended and rolled right into the Triassic ages. While I was knowledgeable on some of what was spoken in, there was enough new information and anecdotes from the author about his career that it was a really entertaining read all thru.
 
+10. <b>A Bright Future</b> by Joshua Goldstein (9-26-26) - This was an interesting read in the sense that I do not know much about nuclear technology, the good or the bad. The book is largely all in on nuclear technology when being used for electric generation so its a one sided story. Overall it talks about nuclear in regards to how it is about the only viable energy source that can help us decarbonize to help offset climate change. Renewables in the standard sense (solar, hydro, and wind) are great, but they are not able to be used everywhere and solar and wind in particular require there to be both sun and wind to even work. It dabbled in how using a nuclear generator in order to create military grade uranium for weapons is not easy to achieve and even when it could be done it would not be an easy feat to accomplish. Overall the negative stigma that nuclear power has garnered over the last half century is unwarranted and the safety record of it over this time is unparalleled between pretty much every other source of energy.
+
 ### Fiction
 1. <b>Star Wars: Return of the Jedi: From a Certain Point of View</b> by Various Authors (1-2-26) - This is probably the latest I am getting a book added to my read list. Overall I just wasn't feeling this book that much compared to the others. Not many of the stories stuck out to me and are really not that memorable. I don't regret reading it but I also know I wont ever read this and I would be hard pressed to recommend this to someone else to pick up and read. Like the previous books in this Certain Point of View storyline, we look at stories from the people who were around the events of the main story. So there was multiple stories from Dancers or people who worked in Jabba's palace, various story arcs involving various imperial officers and stormtroopers, a story from the perspective of the Ewoks, and obviously from the various background rebels as well.
 
@@ -53,10 +55,10 @@
 
 ### Currently Reading
 
-1. A Bright Future by Joshua Goldstein
+1. The Other Ancient Civiliasations by Todd Desilva
 2. HHhH by Laurent Binet
 
-### Current Book Completed Count as of 9/24/26
+### Current Book Completed Count as of 9/26/26
 
-Non-fiction - 9\
+Non-fiction - 10\
 Fiction - 10
