@@ -55,7 +55,7 @@
 
 ### Currently Reading
 
-1. The Other Ancient Civiliasations by Todd Desilva
+1. The Other Ancient Civiliasations by Raven Todd Desilva
 2. HHhH by Laurent Binet
 
 ### Current Book Completed Count as of 9/26/26
