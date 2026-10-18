@@ -53,12 +53,14 @@
 
 10. <b>Cadaver: Book 3</b> by Nick Clausen (9-24-26) - Book 3 was interesting and I am not really sure why I find it interesting. Its sort of like watching The Walking Dead, I really got bored with it about two seasons prior to stopping watching it because it was visually appealing enough for me to continue. The story still largely follows Aksel from the previous books as he keeps on this adventure. It seems like overall these first three books have only taken place over the course of a couple of days in this world. There are some more players coming into the story now offering different perspectives but I found it a bit hard to keep up with them because its been so long since I read the previous book. I shall continue the series though, the overall story arc is somewhat interesting at least and they are easy reads that don't take long to get thru.
 
+11. <b>HHhH</b> by Laurent Binet (10-16-26) - This was a unique read for sure. While the events that is being written about are historical, the author does take liberties with the story of the assassination of Reinhard Heydrich. The author has a habit of sort of rambling about aspects of the story or just talking about things from his perspective. For instance, he talks about how things could have worked out if the events had gone different, or starts talking about just different events from his own personal life as he is researching the books. Overall it was a good book, the format was a it more off putting to me personally, but I still ultimately found it enjoyable. 
+
 ### Currently Reading
 
 1. The Other Ancient Civiliasations by Raven Todd Desilva
-2. HHhH by Laurent Binet
+2. Project Hail Mary by Andy Weir
 
-### Current Book Completed Count as of 9/26/26
+### Current Book Completed Count as of 10/17/26
 
 Non-fiction - 10\
-Fiction - 10
+Fiction - 11
