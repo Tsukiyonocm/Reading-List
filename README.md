@@ -62,7 +62,7 @@
 1. Ordinary Men by Christopher R. Browning
 2. Project Hail Mary by Andy Weir
 
-### Current Book Completed Count as of 10/17/26
+### Current Book Completed Count as of 10/25/26
 
 Non-fiction - 11\
 Fiction - 11
