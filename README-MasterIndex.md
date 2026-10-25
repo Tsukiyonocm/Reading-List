@@ -61,6 +61,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Misbelief</b> by Dan Ariely (5-29-26) \
 <b>The More of Less</b> by Joshua Becker (3-13-21) \
 <b>The Next Great Migration</b> by Sonia Shah (8-16-26) \
+<b>The Other Ancient Civilizations</b> by Raven Todd Desilva (10-22-26) \
 <b>The Paradox of Choice: Why More is Less</b> by Barry Schwartz (3-5-20) \
 <b>The Planets</b> by Andrew Cohen and Professor Brian Cox (1-21-23) \
 <b>Punished by Rewards</b> by Alfie Kohn (11-29-19) \
@@ -113,7 +114,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Halo Oblivion</b> by Troy Denning (9-12-21)\
 <b>Harvest Home</b> by Thomas Tryon (3-15-22)\
 <b>The Haunting of Hill House</b> by Shirley Jackson (10-9-2020)\
-11. <b>HHhH</b> by Laurent Binet (10-16-26)\
+<b>HHhH</b> by Laurent Binet (10-16-26)\
 <b>The Hollow Ones</b> by Chuck Hogan and Guillermo Del Toro (9-27-23)\
 <b>Hull Zero Three</b> by Greg Bear (9-10-20)\
 <b>The Last Astronaut</b> by David Wellington (3-17-20)\
