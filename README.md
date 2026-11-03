@@ -57,12 +57,14 @@
 
 11. <b>HHhH</b> by Laurent Binet (10-16-26) - This was a unique read for sure. While the events that is being written about are historical, the author does take liberties with the story of the assassination of Reinhard Heydrich. The author has a habit of sort of rambling about aspects of the story or just talking about things from his perspective. For instance, he talks about how things could have worked out if the events had gone different, or starts talking about just different events from his own personal life as he is researching the books. Overall it was a good book, the format was a it more off putting to me personally, but I still ultimately found it enjoyable. 
 
+12. <b>Project Hail Mary</b> by Andy Weir (11-1/26) This was everything I hoped it would be. The phrasing and the pacing of the book was just as good as the movie was. I found myself chuckling multiple times at the interactions between Grace and Rocky. It was enjoyable just as much as the movie was when I first watched it. Overall there is not much more to say about this, the story feels like it follows the movies pretty closely, but I really need to watch the movie again now and compare them together. I could see myself reading this again in the future just because it was so fun to read this time. 
+
 ### Currently Reading
 
 1. Ordinary Men by Christopher R. Browning
-2. Project Hail Mary by Andy Weir
+2. Sunrise on the Reaping by Suzanne Collins
 
-### Current Book Completed Count as of 10/25/26
+### Current Book Completed Count as of 11/2/26
 
 Non-fiction - 11\
-Fiction - 11
+Fiction - 12
