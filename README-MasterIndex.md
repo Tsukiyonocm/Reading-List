@@ -61,6 +61,7 @@ With the fiction books I might try to do things slightly different, I tend to re
 <b>Misbelief</b> by Dan Ariely (5-29-26) \
 <b>The More of Less</b> by Joshua Becker (3-13-21) \
 <b>The Next Great Migration</b> by Sonia Shah (8-16-26) \
+<b>Ordinary Men</b> by Christopher R. Browning (11-16-26)\
 <b>The Other Ancient Civilizations</b> by Raven Todd Desilva (10-22-26) \
 <b>The Paradox of Choice: Why More is Less</b> by Barry Schwartz (3-5-20) \
 <b>The Planets</b> by Andrew Cohen and Professor Brian Cox (1-21-23) \

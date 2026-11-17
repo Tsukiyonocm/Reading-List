@@ -32,7 +32,9 @@
 
 10. <b>A Bright Future</b> by Joshua Goldstein (9-26-26) - This was an interesting read in the sense that I do not know much about nuclear technology, the good or the bad. The book is largely all in on nuclear technology when being used for electric generation so its a one sided story. Overall it talks about nuclear in regards to how it is about the only viable energy source that can help us decarbonize to help offset climate change. Renewables in the standard sense (solar, hydro, and wind) are great, but they are not able to be used everywhere and solar and wind in particular require there to be both sun and wind to even work. It dabbled in how using a nuclear generator in order to create military grade uranium for weapons is not easy to achieve and even when it could be done it would not be an easy feat to accomplish. Overall the negative stigma that nuclear power has garnered over the last half century is unwarranted and the safety record of it over this time is unparalleled between pretty much every other source of energy.
 
-<b>The Other Ancient Civilizations</b> by Raven Todd Desilva (10-22-26) - This was somewhat of an interesting read though the main reason I think I bought it was sort of a let down. I originally added this to my list as I was interested in info about the Cahokia mounds and the civilization that created. This book did delve into that, but it was a very basic level of information. For the most part, this did a surface level introduction to a bunch of old civilizations that most people tend to discount or that there was not much information on for one reason or another. It did go into some, such as the Sumerians and the Nubians that I was familiar with. An interesting read for sure, but a bit of a let down if wanting to get more detail.
+11. <b>The Other Ancient Civilizations</b> by Raven Todd Desilva (10-22-26) - This was somewhat of an interesting read though the main reason I think I bought it was sort of a let down. I originally added this to my list as I was interested in info about the Cahokia mounds and the civilization that created. This book did delve into that, but it was a very basic level of information. For the most part, this did a surface level introduction to a bunch of old civilizations that most people tend to discount or that there was not much information on for one reason or another. It did go into some, such as the Sumerians and the Nubians that I was familiar with. An interesting read for sure, but a bit of a let down if wanting to get more detail.
+
+12. <b>Ordinary Men</b> by Christopher R. Browning (11-16-26) - I was and was also not impressed with this book. Overall the main part of the book did a good job of describing the more ordinary people involved in the final solution. In this regard we are talking about a police battalion that was sent into Poland after the occupation began and was tasked with executing the polish jews. There was a good description of how a small percentage would actually refuse to take part in the killings with no repercussions. It would also talk a bit about how many others followed orders and then others still enjoyed the task of killing and gleefully took part. The last part of the book though I really didn't like as it seemed not needed to me. The author was more talking about differences between various historians and his own take on the evidence in regards to if Germans were coerced or predestined to take part in the mass killings of World War 2. Overall while it might be truthful, it seemed unneeded in the book since it was more about historian interpretation then it was about the people taking part in the killings directly.
 
 ### Fiction
 1. <b>Star Wars: Return of the Jedi: From a Certain Point of View</b> by Various Authors (1-2-26) - This is probably the latest I am getting a book added to my read list. Overall I just wasn't feeling this book that much compared to the others. Not many of the stories stuck out to me and are really not that memorable. I don't regret reading it but I also know I wont ever read this and I would be hard pressed to recommend this to someone else to pick up and read. Like the previous books in this Certain Point of View storyline, we look at stories from the people who were around the events of the main story. So there was multiple stories from Dancers or people who worked in Jabba's palace, various story arcs involving various imperial officers and stormtroopers, a story from the perspective of the Ewoks, and obviously from the various background rebels as well.
@@ -61,10 +63,10 @@
 
 ### Currently Reading
 
-1. Ordinary Men by Christopher R. Browning
+1. Starry Messenger by Neil deGrasse Tyson
 2. Sunrise on the Reaping by Suzanne Collins
 
-### Current Book Completed Count as of 11/2/26
+### Current Book Completed Count as of 11/16/26
 
-Non-fiction - 11\
+Non-fiction - 12\
 Fiction - 12
