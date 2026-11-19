@@ -8,6 +8,7 @@
 [Archive 2023](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2023.md)\
 [Archive 2024](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2024.md)\
 [Archive 2025](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2025.md)\
+[Archive 2026](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-2026.md)\
 [Master Index](https://github.com/Tsukiyonocm/Reading-List/blob/main/README-MasterIndex.md)
 
 ## Books read starting December 1st 2026
