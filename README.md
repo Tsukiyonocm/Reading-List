@@ -61,12 +61,14 @@
 
 12. <b>Project Hail Mary</b> by Andy Weir (11-1/26) This was everything I hoped it would be. The phrasing and the pacing of the book was just as good as the movie was. I found myself chuckling multiple times at the interactions between Grace and Rocky. It was enjoyable just as much as the movie was when I first watched it. Overall there is not much more to say about this, the story feels like it follows the movies pretty closely, but I really need to watch the movie again now and compare them together. I could see myself reading this again in the future just because it was so fun to read this time. 
 
+13. <b>Sunrise on the Reaping</b> by Suzanne Collins (11-17-26) - This was a fantastic read and I am glad I was able to get to read the story prior to the movies release this weekend. The character seemed to have the wittiness of Woody Harrelson's character and just felt all around like a good person trapped in a impossible situation. The overall story arc follows a similar path as to the Hunger Games books in and of itself, but the flourish that's used is quite nice for this different setting. The story brings in a lot of names from the original book series, and also sprinkles in some of the names of people from the prequel book as well to the mix. The story is heartbreaking, but having seen the character 24 years in the future there was little surprise that it was going to end badly for our hero.
+
 ### Currently Reading
 
 1. Starry Messenger by Neil deGrasse Tyson
-2. Sunrise on the Reaping by Suzanne Collins
+2. Star Wars: Dawn of the Jedi - Into the Void by Tim Lebbon
 
-### Current Book Completed Count as of 11/16/26
+### Current Book Completed Count as of 11/17/26
 
 Non-fiction - 12\
-Fiction - 12
+Fiction - 13
